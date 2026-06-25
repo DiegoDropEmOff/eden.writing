@@ -8,7 +8,7 @@ The second-in-command of a Saint's heavenly host. The duties relegated to them v
 
 # Angels 
 
-The Angels are light beings serving under the Saints. 'Angels' is a general term for all Choirs. Each choir
+The Angels are light beings serving under the Saints. 'Angels' is a general term for all Hosts. Each Choir as said each 
 
 
 Metatron
