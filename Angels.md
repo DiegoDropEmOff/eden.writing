@@ -1,8 +1,5 @@
 
-**
-
-‘God’, St. Metatron
-
+## ‘God’, St. Metatron
 
 ## Seraphim, St. Michael, New Heaven (Centre: Throne)
 
