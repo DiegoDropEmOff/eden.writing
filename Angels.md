@@ -1,9 +1,7 @@
+‘God’, St. Metatron
 
-## ‘God’, St. Metatron
+Seraphim, St. Michael, New Heaven (Centre: Throne)
 
-## Seraphim, St. Michael, New Heaven (Centre: Throne)
-
-  
 Michael - Lion-faced
 Male
 Glory
@@ -14,1811 +12,915 @@ Female
 Potence
 
 Helel - Bull-faced
-
 Male
-
 Knowledge
-
 ?
 
-  
-
 Abdiel - Man-faced
-
 Male
-
 Scribing
 
-  
-
-## Cherubim, St. Gabriel, New Heaven (Inner: Ring)
-
-  
+Cherubim, St. Gabriel, New Heaven (Inner: Ring)
 
 Gabriel
-
 Male
-
 Foundation
-
 Vessel
-
-  
 
 Cherubiel
-
 Female
-
 Presence
 
-  
-
 Hlm
-
 Male
-
 Firmament
 
-  
-
 Samuel
-
 Male
-
 Completion
 
-  
-
 Phanuel
-
 Male
-
 Hope
 
-  
-
 Daniel
-
 Male
-
 Destiny
 
-  
-
-Suna 
-
+Suna 
 Female
-
 Blessings
 
-  
-
 Oseny
-
 Female
-
 Miracles
 
-  
-
 Schiekron
-
 Female
-
 Preservation
 
-  
-
 Helison
-
 Male
-
 Protection
 
-  
-
-Oriel 
-
+Oriel 
 Female
-
 Fate
 
-  
-
 Zarobi
-
 Female
-
 Leylines
 
-  
-
 Abel
-
 Male
-
 Testament
 
-  
-
 Biztha
-
 Female
-
 Passivity
 
-  
-
 Rabia
-
 Female
-
 Obedience
 
-  
-
 Ithuriel
-
 Male
-
 Veils
 
-  
-
-## Ophanim, St. Gallistur, New Heaven (Outer: Gates)
-
-  
+Ophanim, St. Gallistur, New Heaven (Outer: Gates)
 
 Gallistur
-
 Male
-
 Wisdom
-
 Vessel
-
-  
 
 Ophaniel
-
 Male
-
 Science
 
-  
-
-Absinthium 
-
+Absinthium 
 Female
-
 Revelation
 
-  
-
 Haurvatat
-
 Female
-
 Salvation
 
-  
-
 Grigori
-
 Male
-
 Resurrection
 
-  
-
 Hadasdagedoy
-
 Female
-
 Reduction
 
-  
-
 Geno
-
 Female
-
 Genesis
 
-  
-
 Tafel X
-
 Male
-
 Inexistence
 
-  
-
-Zawar 
-
+Zawar 
 Female
-
 Empowerment
 
-  
-
 Thronus
-
 Male
-
 Sustainment
 
-  
-
 Byleth
-
 Male
-
 Reconstruction
 
-  
-
-## Dominions, St. Haniel, Hades 
-
-  
+Dominions, St. Haniel, Hades 
 
 Haniel
-
 Female
-
 Eternity
-
 Vessel
-
-  
 
 Asrulyu
-
 Female
-
 Authority
 
-  
-
 Homoth
-
 Female
-
 Justice
 
-  
-
 Gutrix
-
 Male
-
 Matrix
 
-  
-
-Varcan 
-
+Varcan 
 Male
-
 Kingship
-
-  
 
 Mehuman
-
 Male
-
 Diplomacy
 
-  
-
 Abachta
-
 Female
-
 Fundamentals
 
-  
-
-## Virtues, St. Raphael, Celestial Sphere (Misc.)
-
-  
+Virtues, St. Raphael, Celestial Sphere (Misc.)
 
 Raphael
-
 Male
-
 Grace
-
 Vessel
-
-  
 
 Barakel
-
 Male
-
 Thunder
 
-  
-
 Machidiel
-
 Male
-
 Aries
 
-  
-
-Tual 
-
+Tual 
 Female
-
 Taurus
 
-  
-
 Giel
-
 Male
-
 Gemini
 
-  
-
 Casujoiah
-
 Female
-
 Capricorn
 
-  
-
-Ausisul 
-
+Ausisul 
 Male
-
 Aquarius
 
-  
-
 Pasiel
-
 Female
-
 Pisces
 
-  
-
-Cael 
-
+Cael 
 Female
-
 Cancer
 
-  
-
 Sagham
-
 Male
-
 Leo
 
-  
-
 Voil
-
 Female
-
 Virgo
 
-  
-
-Ayil 
-
-Male 
-
+Ayil 
+Male 
 Sagittarius
 
-  
-
-Sosol 
-
+Sosol 
 Female
-
 Scorpio
 
-  
-
 Jael
-
 Male
-
 Libra
 
-  
-
 Farlas
-
 Male
-
 Winter
 
-  
-
 Andarcel
-
-Male 
-
+Male 
 Autumn
 
-  
-
 Telvi
-
 Female
-
-Spring 
-
-  
+Spring 
 
 Casmaran
-
 Male
-
 Summer
 
-  
-
 Ridya
-
 Female
-
 Rain
-
 Jung
-
-  
 
 Rahab
-
 Female
-
 Water
 
-  
-
 Rosabis
-
 Female
-
 Metal
 
-  
-
-Phorlakh 
-
+Phorlakh 
 Female
-
 Earth
 
-  
-
 Chasan
-
 Female
-
 Air
 
-  
-
 Ziquiel
-
 Male
-
 Comets
 
-  
-
-Ariel 
-
+Ariel 
 Female
-
 Force
 
-  
-
 Gediel
-
 Male
-
 Sky
 
-  
-
-Ramiel 
-
+Ramiel 
 Female
-
 Lightning
 
-  
-
 Ambriel
-
 Male
-
 Shadow
 
-  
-
 Rampel
-
 Male
-
 Mountains
 
-  
-
 Yurkami
-
 Male
-
 Hail
 
-  
-
 Sui’el
-
 Female
-
 Quakes
 
-  
-
 Suphlatus
-
 Female
-
 Dust
 
-  
-
 Ilaniel
-
 Female
-
 Fruit
 
-  
-
 Sachluph
-
 Male
-
 Vegetation
 
-  
-
 Zuphlas
-
 Male
-
 Trees
 
-  
-
 Shamsiel
-
 Male
-
 Sunlight
 
-  
-
 Nathanel
-
 Male
-
 Fire
 
-  
-
 Zaafiel
-
 Female
-
 Hurricanes
 
-  
-
 Shalgiel
-
 Male
-
 Snow
 
-  
-
 Tharsis
-
 Male
-
 Sea
 
-  
-
 Manakel
-
 Female
-
 Aquatic Animals
 
-  
-
 Trgiaob
-
 Male
-
 Land
 
-  
-
 Lecabel
-
 Female
-
 Flowers
 
-  
-
 Senacher
-
 Male
-
 Fusor
 
-  
-
 Typhon
-
 Male
-
 Storms
 
-  
-
 Iaqwiel
-
 Female
-
 Tides
 
-  
-
 Ammondiel
-
 Female
-
 Moonlight
 
-  
-
-Psachar 
-
+Psachar 
 Female
-
 Energy
 
-  
-
 Macoton
-
 Female
-
 Sound
 
-  
-
 Mitzrael
-
 Female
-
 Void
 
-  
-
-Orion 
-
+Orion 
 Male
-
 Constellations
 
-  
-
 Sothis
-
 Female
-
 Past
 
-  
-
-Cameron 
-
+Cameron 
 Male
-
 Future
 
-  
-
 Iyar
-
 Male
-
 Ice
 
-  
-
 Lahash
-
 Female
-
 Lava
 
-  
-
 Quelamia
-
 Female
-
 Sand
 
-  
-
 T'achnu
-
 Female
-
 Magnetism
 
-  
-
 Dai
-
 Female
-
 Parasite
 
-  
-
 Ecanus
-
 Male
-
 Rays
 
-  
-
-Zephon 
-
+Zephon 
 Male
-
 Good
 
-  
-
 Anayz
-
 Female
-
 Monday
 
-  
-
-Friagne 
-
+Friagne 
 Male
-
 Tuesdays
 
-  
-
-Mathlai 
-
+Mathlai 
 Male
-
 Wednesday
 
-  
-
 Zacharael
-
 Male
-
 Thursday
 
-  
-
-Babiel 
-
+Babiel 
 Female
-
 Friday
 
-  
-
-Orifiel 
-
+Orifiel 
 Male
-
 Saturday
 
-  
-
 Jerahmeel
-
 Male
-
 Sunday
 
-  
-  
 
-## Powers, St. Khamael, Abyss
-
-  
+Powers, St. Khamael, Abyss
 
 Khamael
-
 Male
-
 Valour
-
 Vessel
 
-  
-
-Samyaza 
-
+Samyaza 
 Male
-
 Stars
 
-  
-
 Azazel
-
-Male 
-
+Male 
 Instincts
 
-  
-
 Baraqijal
-
 Female
-
 Planets
 
-  
-
 Armaros
-
 Male
-
 Spells
 
-  
-
-Kokabel 
-
+Kokabel 
 Female
-
 Sigils
 
-  
-
 Sariel
-
 Female
-
 Gravity
 
-  
-
 Gadreel
-
 Male
-
 War
 
-  
-
 Ezequeel
-
 Female
-
 Atoms
 
-  
-
-Araqiel 
-
+Araqiel 
 Male
-
 Form
 
-  
-
 Penemue
-
 Female
-
 Purpose
 
-  
-
 Makatiel
-
 Male
-
 Sickness
-
 Freud
-
-  
 
 Zethar
-
 Male
-
 Mortality
-
 Adler
 
-  
-
 Amamiel
-
 Female
-
 Weakness
-
 Freud
-
-  
 
 Umabel
-
 Female
-
 Physics
 
-  
-
 Zehanpuryu'h
-
 Male
-
 Balance
 
-  
-
 Anpiel
-
 Female
-
 Limits
 
-  
-
 Cerviel
-
 Male
-
 Strength
 
-  
-
 Sansenoi
-
 Male
-
 Prebirth
 
-  
-
 Senoi
-
 Male
-
 Birth
 
-  
-
 Semangelogh
-
 Male
-
 Rebirth
 
-  
-
 Tagas
-
 Female
-
 Transmutation
 
-  
-
 Narcoriel
-
 Male
-
 Neutrality
 
-  
-
 Jerazol
-
 Female
-
 Armour
 
-  
-
 Cureton
-
 Male
-
 Crush
 
-  
-
 Harbonah
-
 Male
-
 Pain
 
-  
-
 Ballaton
-
 Male
-
 Ruin
 
-  
-
 Roelhaiphar
-
 Female
-
 Synthesis
 
-  
-
 Sywaro
-
 Male
-
 Reformation
 
-  
-
 Elion
-
 Male
-
 Change
 
-  
-
 Farvardin
-
 Female
-
 Bloom
 
-  
-
-Kyriel 
-
+Kyriel 
 Male
-
 Gates
 
-  
-
-Nina 
-
+Nina 
 Female
-
 Law
 
-  
-
-## Principalities, St. Tzadkiel, Tartarus 
-
-  
+Principalities, St. Tzadkiel, Tartarus 
 
 Tzadkiel
-
 Female
-
 Mercy
-
 Vessel
 
-  
-
-Mashit 
-
+Mashit 
 Male
-
 Destruction
 
-  
-
-Kezef 
-
+Kezef 
 Male
-
 Wrath
-
+ 
 Hemah
-
 Male
-
 Fury
 
-  
-
-Hasmed 
-
+Hasmed 
 Male
-
 Annihilation
-
-Af  
-
+ 
+Af  
 Male
-
 Anger
 
-  
-
-Kshiel 
-
+Kshiel 
 Female
-
 Misery
 
-  
-
 Shaftiel
-
 Female
-
 Hate
 
-  
-
 Nasargiel
-
 Male
-
 Ash
 
-  
-
 Lahatiel
-
 Female
-
-Forgetfulness 
-
-  
+Forgetfulness 
 
 Makatiel
-
 Female
-
 Blaze
 
-  
-
 Hutriel
-
 Female
-
 Wailing
 
-  
-
-Rogziel 
-
+Rogziel 
 Male
-
 Suffering
 
-  
-
 Pusiel
-
 Female
-
 Repentance
 
-  
-
 Amamiel
-
 Male
+Ferrying 
 
-Ferrying 
 
-  
-  
-
-## Archangels, St. Tzaphqiel, New Earth (Countries)
-
-  
+Archangels, St. Tzaphqiel, New Earth (Countries)
 
 Tzaphqiel
-
 Female
-
 Understanding
-
 Vessel
-
-  
 
 Beburos
-
 Female
-
-Calamity 
-
-  
+Calamity 
 
 Aker
-
 Female
-
 Blood
 
-  
-
-Zebuleon 
-
+Zebuleon 
 Female
-
 Plague
 
-  
-
 Gabuthelon
-
 Female
+Corrosion 
 
-Corrosion 
-
-  
-
-Arphugitonos  
-
+Arphugitonos  
 Female
-
 Darkness
 
-  
-
 Uriel
-
 Male
-
 Tartarus
 
-  
-
-## Angels, St. Sandalphon, New Earth (Localities)
-
-  
+Angels, St. Sandalphon, New Earth (Localities)
 
 Sandalphon
-
 Male
-
 Kingship
-
 Vessel
 
-  
-
 Lailah
-
 Female
-
 Guf
 
-  
-
 Melchisedec
-
 Male
-
 Peace
 
-  
-
 Barpharanges
-
 Male
-
 Cleansing
-
 Jung
-
-  
 
 Tahariel
-
 Female
-
 Purity
-
 Jung
 
-  
-
 Sealtiel
-
 Female
-
 Sealing
-
 Freud
 
-  
-
 Eistibus
-
 Female
-
 Divination
 
-  
-
 Dumah
-
 Female
-
 Dreams
 
-  
-
-Butator 
-
+Butator 
 Female
-
 Calculation
 
-  
-
 Adeo
-
 Female
-
 Rites
 
-  
-
 Eiael
-
 Male
-
 Occult
 
-  
-
-Time 
-
+Time 
 Female
-
 Tarot
 
-  
-
 Paraqlitos
-
 Female
-
 Sorrow
 
-  
-
 Pahadron
-
 Female
-
 Terror
 
-  
-
-Biqa 
-
+Biqa 
 Female
-
 Lies
 
-  
-
 Hofniel
-
 Female
-
 Conscious
-
+ 
 Poiel
-
 Female
-
 Fortune
 
-  
-
-Haamiah 
-
+Haamiah 
 Female
-
 Truth
-
-Temeluchus 
-
+ 
+Temeluchus 
 Female
-
 Torment
 
-  
-
 Donquel
-
 Male
-
 Love
 
-  
-
 Mupiel
-
 Female
-
 Memory
 
-  
-
 Yusamin
-
 Female
-
 Fertility
-
 Amy
-
 Female
-
 Arts
-
+ 
 Teiaiel
-
 Male
-
 Visions
 
-  
-
 Vretil
-
 Male
-
 Song
 
-  
-
 Rakul
-
 Male
-
 Vengeance
 
-  
-
 Gethel
-
 Male
-
 Secrets
 
-  
-
 Camasyar
-
 Female
-
 Opposition
 
-  
-
 Zarall
-
 Male
-
 Deals
 
-  
-
 Morael
-
 Male
-
 Fear
 
-  
-
 Tablibik
-
 Male
-
 Intrigue
 
-  
-
 Tabris
-
 Male
-
 Free Will
 
-  
-
-Iofiel 
-
+Iofiel 
 Female
-
 Positivism
-
-Rachmiel 
-
+ 
+Rachmiel 
 Female
-
 Kindness
 
-  
-
 Salem
-
 Female
-
 Trickery
 
-  
-
 Astrompsuchoa
-
 Male
-
 Isolation
 
-  
-
 Itqa
-
 Female
-
 Kindred
 
-  
-
 Lamas
-
 Male
-
 Lament
 
-  
-
 Isaac
-
 Male
-
 Piety
 
-  
-
 Javan
-
 Male
-
 Joy
 
-  
-
 Och
-
 Male
-
 Alchemy
 
-  
-
 Wallim
-
 Male
-
 Thoughts
 
-  
-
 Carcas
-
 Female
-
 Endurance
 
-  
-
 Helech
-
 Female
-
 Flight
 
-  
-
 Abraxas
-
 Male
-
 Craze
 
-  
-
 Zaazonash
-
 Male
-
 Nihilism
 
-  
-
 Drelmeth
-
 Female
-
 Trust
 
-  
-
 Doutch
-
 Male
-
 Doubt
 
-  
-
 Deheborym
-
 Female
-
 Pride
-
+ 
 Eheres
-
 Female
-
 Emptiness
 
-  
-
 Flaef
-
 Female
-
 Warmth
 
-  
-
 Galmon
-
 Male
-
 Connection
 
-  
-
 Genaritzod
-
 Male
-
 Reciprocity
 
-  
-
 Haarez
-
 Female
-
 Integrity
-
+ 
 Iurabatres
-
 Female
-
 Rememberance
 
-  
-
 Jukar
-
 Male
-
 Folly
 
-  
-
 Burcat
-
 Male
-
 Wealth
 
-  
-
 Charms
-
 Female
-
 Desire
 
-  
-
 Azrael
-
 Male
-
 Death
-
 Lacan
 
-  
-
 Mansematt
-
 Male
-
 Evils
 
-  
-
-Puta 
-
+Puta 
 Female
-
 Oblivion
 
-  
-
 Obaddon
-
 Male
-
 Doom
-
-**
