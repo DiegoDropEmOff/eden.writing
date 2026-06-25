@@ -487,7 +487,6 @@ Purpose
 Makatiel
 Male
 Sickness
-Freud
 
 Zethar
 Male
