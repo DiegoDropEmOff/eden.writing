@@ -8,7 +8,7 @@ The second-in-command of a Saint's heavenly host. The duties relegated to them v
 
 # Angels 
 
-The Angels are light beings serving under the Saints. 'Angels' is a general term for all Hosts. As can guessed each Choir is a distinct species of Angel, and each species serves a purpose in the Celestial Order
+The Angels are light beings serving under the Saints. 'Angels' is a general term for all Hosts. As can guessed each Choir is a distinct species of Angel, and each species serves a purpose in the Heavenly Order
 
 
 Metatron
