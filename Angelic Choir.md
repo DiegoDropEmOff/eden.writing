@@ -102,7 +102,7 @@ Veils
 
 Ophanim, St. Gallitsur, New Heaven (Outer: Gates)
 
-Gallistur
+Gallitsur
 Male
 Wisdom
 Vessel
