@@ -8,6 +8,7 @@ The names of the Saints listed below, alongside their Prince (if applicable):
 	1. Ophaniel
 3. Tzaphqiel
 4. Tzadkiel
+	1. Hasmed
 5. Khamael
 6. Raphael
 7. Haniel
