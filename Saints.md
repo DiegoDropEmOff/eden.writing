@@ -6,4 +6,5 @@
 4. Tzadkiel
 5. Khamael
 6. Raphiel
-7. 
+7. Haniel
+8. 
