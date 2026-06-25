@@ -25,6 +25,8 @@ Seating Princes
 - Hasmed
 - Seraphiel
 - Abdiel
+- Lailah
+- Obaddon
 
 Since each Saint is an aspect of God the basis of their light and power is that exact thing.
 
