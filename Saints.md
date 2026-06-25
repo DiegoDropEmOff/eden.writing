@@ -17,7 +17,6 @@ The names of the Saints listed below, alongside their Prince (if applicable):
 	1. Seraphiel
 	2. Abdiel
 9. Gabriel
-	1. Cherubiel
-	2. Lailah
+	1. Lailah
 10. Sandalphon
 	1. Obaddon
