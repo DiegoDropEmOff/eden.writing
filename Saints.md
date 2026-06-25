@@ -5,7 +5,7 @@
 3. Tzaphqiel
 4. Tzadkiel
 5. Khamael
-6. Raphiel
+6. Raphael
 7. Haniel
 8. Michael
 9. Gabriel
