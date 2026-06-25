@@ -4,4 +4,5 @@
 2. Gallitsur
 3. Tzaphqiel
 4. Tzadkiel
-5. 
+5. Khamael
+6. 
