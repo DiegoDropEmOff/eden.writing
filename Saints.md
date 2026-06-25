@@ -30,5 +30,7 @@ Tzadkiel = Mercy
 Khamael = Valour
 Raphael = Grace
 Haniel = Eternity
+Michael = Glory
+Gabriel
 
 
