@@ -20,6 +20,12 @@ The names of the Saints listed below, alongside their Prince (if applicable):
 10. Sandalphon
 	1. Obaddon
 
+Seating Princes
+- Uriel
+- Hasmed
+- Seraphiel
+- Abdiel
+
 Since each Saint is an aspect of God the basis of their light and power is that exact thing.
 
 Metatron = Crown
