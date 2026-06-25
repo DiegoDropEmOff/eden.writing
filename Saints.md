@@ -31,7 +31,7 @@ Seating Princes
 Since each Saint is an aspect of God the basis of their light and power is that exact thing.
 
 Metatron = Crown
-Gallitsur = Knowledge 
+Gallitsur = Wisdom 
 Michael = Glory
 Tzaphqiel = Understanding
 Tzadkiel = Mercy
