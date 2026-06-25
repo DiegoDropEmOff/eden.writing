@@ -4,24 +4,14 @@
 ## Seraphim, St. Michael, New Heaven (Centre: Throne)
 
   
-
 Michael - Lion-faced
-
 Male
-
 Glory
-
 Vessel
 
-  
-
 Seraphiel - Eagle-faced
-
 Female
-
 Potence
-
-  
 
 Helel - Bull-faced
 
