@@ -1,1 +1,1 @@
-The principal organisation on New Earth adhering to God's will for the people of the planet. With blessings and support from the Angels,
+The principal organisation on New Earth adhering to God's will for the people of the planet. With blessings and support from the Angels, the body
