@@ -8,7 +8,7 @@
 
 # Characters
 
-Main:
+Main Characters:
 - Eve
 - Adam
 - Helel
