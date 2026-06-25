@@ -689,10 +689,6 @@ Male
 Kingship
 Vessel
 
-Lailah
-Female
-Guf
-
 Melchisedec
 Male
 Peace
