@@ -243,7 +243,6 @@ Summer
 Ridya
 Female
 Rain
-Jung
 
 Rahab
 Female
