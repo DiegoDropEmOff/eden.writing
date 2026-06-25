@@ -7,6 +7,7 @@ The names of the Saints listed below, alongside their Prince (if applicable):
 2. Gallitsur
 	1. Ophaniel
 3. Tzaphqiel
+	1. Uriel
 4. Tzadkiel
 	1. Hasmed
 5. Khamael
