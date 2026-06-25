@@ -4,6 +4,6 @@
 4. Saints
 5. Princes
 6. [Heavenly Host](Angels)
-7. The Church
+7. [[The Church]]
 
 # Characters
