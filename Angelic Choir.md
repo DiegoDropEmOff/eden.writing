@@ -6,6 +6,8 @@ The 10 Saints are the Sefirot of God. In simpler terms, they're emanations of hi
 
 The second-in-command of a Saint's heavenly host. The duties relegated to them varies as they are based on their Master's wishes. Princes will usually rule-in-place while their Saint attends to other matters or is unavailable for certain reasons. They also act as liaisons between the Saint and their Host, Council of Elders and the Saint.
 
+# Angels 
+
 Metatron
 
 Seraphim, St. Michael, New Heaven (Centre: Throne)
