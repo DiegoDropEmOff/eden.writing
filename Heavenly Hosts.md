@@ -4,7 +4,7 @@ The 10 Saints are the Sefirot of God. In simpler terms, they're emanations of hi
 
 # Princes
 
-The second-in-command of a Saint'sheavc
+The second-in-command of a Saint's heavenly host.
 
 Metatron
 
