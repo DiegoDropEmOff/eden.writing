@@ -457,7 +457,6 @@ Jerahmeel
 Male
 Sunday
 
-
 Powers, St. Khamael, Abyss
 
 Khamael
