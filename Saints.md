@@ -13,5 +13,7 @@ The names of the Saints listed below, alongside their Prince (if applicable):
 8. Michael
 	1. Seraphiel
 9. Gabriel
+	1. Cherubiel
+	2. Lailah
 10. Sandalphon
 
