@@ -3,4 +3,5 @@
 3. Lesser YHVH
 4. Saints
 5. Princes
-6. 
+6. Heavenly Host
+7. 
