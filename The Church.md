@@ -1,1 +1,1 @@
-The principal organisation on New Earth adhering to God's will for the people of the planet. With blessings and support from the Angels, the body
+The principal organisation on New Earth adhering to God's will for the people of the planet. With blessings and support from the Angels, the body looks to rid the world of Darkness.
