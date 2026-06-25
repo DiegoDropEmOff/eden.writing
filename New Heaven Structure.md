@@ -1,3 +1,4 @@
 1. [[God]]
 2. Council of Elders
-3. 
+3. Lesser YHVH
+4. Sefirot
