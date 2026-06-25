@@ -687,17 +687,14 @@ Peace
 Barpharanges
 Male
 Cleansing
-Jung
 
 Tahariel
 Female
 Purity
-Jung
 
 Sealtiel
 Female
 Sealing
-Freud
 
 Eistibus
 Female
