@@ -8,7 +8,7 @@ The second-in-command of a Saint's heavenly host. The duties relegated to them v
 
 # Angels 
 
-The Angels are light beings serving under the Saints
+The Angels are light beings serving under the Saints and for
 
 
 Metatron
