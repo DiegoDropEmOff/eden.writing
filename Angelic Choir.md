@@ -44,6 +44,10 @@ Cherubiel
 Female
 Presence
 
+Lailah
+Female
+Guf
+
 Hlm
 Male
 Firmament
