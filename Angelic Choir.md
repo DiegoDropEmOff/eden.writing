@@ -8,7 +8,7 @@ The second-in-command of a Saint's heavenly host. The duties relegated to them v
 
 # Angels 
 
-The A
+The Angels themselves 
 
 
 Metatron
