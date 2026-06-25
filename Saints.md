@@ -28,6 +28,7 @@ Michael = Glory
 Tzaphqiel = Understanding
 Tzadkiel = Mercy
 Khamael = Valour
-
+Raphael = Grace
+Haniel
 
 
