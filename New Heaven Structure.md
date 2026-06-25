@@ -13,3 +13,5 @@ Main Characters:
 - Adam
 - Helel
 
+Antagonistic Characters:
+- 
