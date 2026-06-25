@@ -2,8 +2,6 @@
 
 The 10 Saints are the Sefirot of God. In simpler terms, they're emanations of him. Their roles vary from administrators, to commanders, and guardians. With both the executive and spiritual authority of God invested within them no power may challenge their word in New Heaven, except the oversight of the Council.
 
-
-
 Metatron
 
 Seraphim, St. Michael, New Heaven (Centre: Throne)
