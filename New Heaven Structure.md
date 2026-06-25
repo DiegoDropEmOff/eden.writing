@@ -1,6 +1,6 @@
 1. [[God]]
-2. Council of Elders
-3. Lesser YHVH
+2. Lesser YHVH
+3. Council of Elders
 4. Saints
 5. Princes
 6. Heavenly Host
