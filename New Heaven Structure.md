@@ -1,6 +1,6 @@
 1. [[Higher YHVH]]
 2. Lesser YHVH
-3. Council of Elders <abbr title="Test">Council of Elders</abbr>
+3. <abbr title="LOOKING">Council of Elders</abbr>
 4. Saints
 5. Princes
 6. [Heavenly Host](Angels)
