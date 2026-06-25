@@ -7,4 +7,6 @@
 5. Khamael
 6. Raphiel
 7. Haniel
-8. 
+8. Michael
+9. Gabriel
+10. 
