@@ -26,4 +26,5 @@ Metatron = Crown
 Gallitsur = Knowledge 
 Michael = Glory
 Tzaphqiel = Understanding
+Khamael = 
 
