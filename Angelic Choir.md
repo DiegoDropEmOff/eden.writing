@@ -13,7 +13,7 @@ The Angels are light beings serving under the Saints. 'Angels' is a general term
 
 Lesser YHVH, St. Metatron
 
-Helel - Bull-faced
+Helel
 Male
 Knowledge
 ?
