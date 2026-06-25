@@ -3,4 +3,5 @@
 1. Metatron
 2. Gallitsur
 3. Tzaphqiel
-4. 
+4. Tzadkiel
+5. 
