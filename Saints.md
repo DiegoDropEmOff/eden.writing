@@ -31,6 +31,7 @@ Khamael = Valour
 Raphael = Grace
 Haniel = Eternity
 Michael = Glory
-Gabriel
+Gabriel = Foundation
+
 
 
