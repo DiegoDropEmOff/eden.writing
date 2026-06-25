@@ -1,7 +1,7 @@
 1. [[Higher YHVH]]
 2. Lesser YHVH
 3. <abbr title="The group of 24 men who advise God, acting as the judiciary of New Heaven.">Council of Elders</abbr>
-4. Saints
+4. <abbr title="
 5. Princes
 6. [Heavenly Host](Angels)
 7. [[The Church]]
