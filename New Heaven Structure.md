@@ -4,4 +4,4 @@
 4. Saints
 5. Princes
 6. Heavenly Host
-7. 
+7. The Church
