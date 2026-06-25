@@ -29,7 +29,7 @@ Male
 Knowledge
 ?
 
-Abdiel - Man-faced
+Abdiel - Bull-faced
 Male
 Scribing
 
