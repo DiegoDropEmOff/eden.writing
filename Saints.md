@@ -2,7 +2,7 @@
 
 1. Metatron
 2. Gallitsur
-	1. 
+	1. Ophaniel
 3. Tzaphqiel
 4. Tzadkiel
 5. Khamael
