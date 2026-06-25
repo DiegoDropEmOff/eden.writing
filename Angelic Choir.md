@@ -10,6 +10,7 @@ The second-in-command of a Saint's heavenly host. The duties relegated to them v
 
 
 
+
 Metatron
 
 Seraphim, St. Michael, New Heaven (Centre: Throne)
