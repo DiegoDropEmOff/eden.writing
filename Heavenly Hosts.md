@@ -4,7 +4,7 @@ The 10 Saints are the Sefirot of God. In simpler terms, they're emanations of hi
 
 # Princes
 
-The second-in-command of a Saint's heavenly host. The duties relegated to them varies based on their Master's wishes.
+The second-in-command of a Saint's heavenly host. The duties relegated to them varies as they are based on their Master's wishes.
 
 Metatron
 
