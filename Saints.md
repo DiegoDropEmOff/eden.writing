@@ -32,6 +32,6 @@ Raphael = Grace
 Haniel = Eternity
 Michael = Glory
 Gabriel = Foundation
-Sandalphone 
+Sandalphon = Kingship
 
 
