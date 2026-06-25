@@ -1,7 +1,6 @@
 *The emanations of God, aspects of it given physical form.*
 
 1. Metatron
-	1. 
 2. Gallitsur
 3. Tzaphqiel
 4. Tzadkiel
