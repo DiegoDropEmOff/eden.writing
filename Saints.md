@@ -28,18 +28,18 @@ Seating Princes
 - Lailah
 - Obaddon
 
-Since each Saint is an aspect of God the basis of their light and power is that exact thing.
+Since each Saint is an aspect of God the cornerstone of their light and power is based upon that exact thing.
 
-Metatron = Crown
-Gallitsur = Wisdom 
-Michael = Glory
-Tzaphqiel = Understanding
-Tzadkiel = Mercy
-Khamael = Valour
-Raphael = Grace
-Haniel = Eternity
-Michael = Glory
-Gabriel = Foundation
-Sandalphon = Kingship
+Metatron - Crown
+Gallitsur - Wisdom 
+Michael - Glory
+Tzaphqiel - Understanding
+Tzadkiel - Mercy
+Khamael - Valour
+Raphael - Grace
+Haniel - Eternity
+Michael - Glory
+Gabriel - Foundation
+Sandalphon - Kingship
 
 
