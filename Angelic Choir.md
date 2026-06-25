@@ -16,7 +16,7 @@ Lesser YHVH, St. Metatron
 Helel
 Male
 Knowledge
-?
+Vessel
 
 Seraphim, St. Michael, New Heaven (Centre: Throne)
 
