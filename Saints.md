@@ -5,4 +5,5 @@
 3. Tzaphqiel
 4. Tzadkiel
 5. Khamael
-6. 
+6. Raphiel
+7. 
