@@ -100,7 +100,7 @@ Ithuriel
 Male
 Veils
 
-Ophanim, St. Gallistur, New Heaven (Outer: Gates)
+Ophanim, St. Gallitsur, New Heaven (Outer: Gates)
 
 Gallistur
 Male
