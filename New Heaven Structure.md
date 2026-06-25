@@ -3,5 +3,5 @@
 3. Council of Elders
 4. Saints
 5. Princes
-6. (Heavenly Host)[Angels]
+6. [Heavenly Host](Angels)
 7. The Church
