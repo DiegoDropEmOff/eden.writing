@@ -1,4 +1,4 @@
-‘God’, St. Metatron
+St. Metatron
 
 Seraphim, St. Michael, New Heaven (Centre: Throne)
 
