@@ -7,3 +7,8 @@
 7. [[The Church]]
 
 # Characters
+
+Main:
+- Eve
+- Adam
+- 
