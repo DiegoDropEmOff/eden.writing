@@ -9,7 +9,7 @@
 6. Raphael
 7. Haniel
 8. Michael
-	1. Serphaniel
+	1. Seraphiel
 9. Gabriel
 10. Sandalphon
 
