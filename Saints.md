@@ -25,4 +25,5 @@ Since each Saint is an aspect of God the basis of their light and power is that 
 Metatron = Crown
 Gallitsur = Knowledge 
 Michael = Glory
-Tzaphqiel = 
+Tzaphqiel = Understanding
+
