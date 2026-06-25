@@ -1,4 +1,4 @@
-*The emanations of God, aspects of him given physical form.*
+*The emanations of God, aspects of it given physical form.*
 
 1. Metatron
 2. Gallitsur
