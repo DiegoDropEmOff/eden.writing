@@ -3,6 +3,7 @@
 The names of the Saints listed below, alongside their Prince (if applicable):
 
 1. Metatron
+	1. (was) Helel
 2. Gallitsur
 	1. Ophaniel
 3. Tzaphqiel
