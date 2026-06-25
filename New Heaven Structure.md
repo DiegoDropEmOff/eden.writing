@@ -14,4 +14,4 @@ Main Characters:
 - Helel
 
 Antagonistic Characters:
-- 
+- Abdiel
