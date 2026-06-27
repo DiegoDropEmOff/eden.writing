@@ -2,9 +2,9 @@
 > The Infinite
 > 	 The body of Higher YHVH, shaped to appear as what the soul deems to feel and see as the True God. Combining the Infinite, Logos, and 
 > Da'at
-> 	 A universe that can be described as 'being God, yet beyond God'. It is the Higher YHVH. Only those with the Key to open the Doors of Eden - Logos can rewrite reality. Of course, one must achieve  a state of equal standing to the Higher YHVH to even be capable of doing that.
+> 	 A universe that can be described as 'being God, yet beyond God'. It is the Higher YHVH. Only those with the Key to open the Doors of Eden - Logos can rewrite reality. Of course, one must achieve a state of equal standing to the Higher YHVH to even be capable of doing that.
 > Tree of Life
-> 	The metaphysical structure b
+> 	The metaphysical structure consisting
 > Throne of God
 > 	 Symbol of God's divine authority over the world. It is held by Lesser YHVH. However, the seat can also function a vehicle to open the path to the True God.
 > Book of Life
