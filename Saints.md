@@ -43,6 +43,6 @@ Gabriel - Foundation
 Sandalphon - Kingship
 
 # Trivia
-
+1. Gallitsur lies a lot - it's no fun to speak what you can figure out.
 
 
