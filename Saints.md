@@ -31,16 +31,16 @@ Seating Princes
 Since each Saint is an aspect of God the cornerstone of their light and power is based upon that exact thing.
 
 Metatron - Crown - Keter
-Gallitsur - Wisdom 
-Michael - Glory
-Tzaphqiel - Understanding
-Tzadkiel - Mercy
-Khamael - Valour
-Raphael - Grace
-Haniel - Eternity
-Michael - Glory
-Gabriel - Foundation
-Sandalphon - Kingship
+Gallitsur - Wisdom - Chokmah
+Michael - Glory - Hod
+Tzaphqiel - Understanding - Binah
+Tzadkiel - Mercy - Chesed
+Khamael - Valour - Gevurah
+Raphael - Grace - Tiferet
+Haniel - Eternity - Netzach
+Michael - Glory - Hod
+Gabriel - Foundation - Yesod
+Sandalphon - Kingship - Malkhuth
 
 # Trivia
 1. Gallitsur lies a lot - it's no fun to speak what you can figure out. Wisdom has to be learned, not fed.
