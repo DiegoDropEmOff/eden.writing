@@ -8,4 +8,4 @@ At an assembly where all denizens of New Heaven were present, and God was giving
 
 When captured, the Court of Elders debated on multiple courses of actions - the worse kinds of punishments were brought up, until Helel's sentence was commuted to banishment.
 
-He became a Fallen Angel as he was casted out of Heaven. Through the Primordial Scroll the history of the world was rewritten to erase and rename
+He became a Fallen Angel as he was casted out of Heaven. Using the Primordial Scroll within Chokmah the history of the world was rewritten to erase and rename
