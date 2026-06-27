@@ -1,4 +1,4 @@
-For the past 1000 years Eve had been searching for someone. Within the World of Dreams she was told by a fading voice that once she found them, they he would change the world.
+For the past 1000 years Eve had been searching for someone. By as Higher Powerading voice that once she found them, they he would change the world.
 
 # Celestial Order
 
