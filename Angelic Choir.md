@@ -37,7 +37,7 @@ Abdiel
 Male
 Scribing
 
-Cherubim, St. Gabriel
+## Cherubim, St. Gabriel
 
 Gabriel
 Male
