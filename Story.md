@@ -1,4 +1,4 @@
-The World was renewed after the Light War (Against Th)
+The Celestial Sphere was renewed after the Light War (Against the World of Darkness).
 
 Back when the world order was stabilised and God reigned, the very realms under him stagnated. Everything became dependent on his law to progress. The closest being in the universe to God, his right-hand - Helel saw this and was unhappy.
 
