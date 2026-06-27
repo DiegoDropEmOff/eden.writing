@@ -23,3 +23,4 @@ Antagonistic Characters:
 
 [[Lore]]
 [[World]]
+[[Story]]
