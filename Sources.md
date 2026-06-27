@@ -4,3 +4,4 @@ https://en.wikipedia.org/wiki/Zeir_Anpin - Divine Heart
 
 https://en.wikipedia.org/wiki/Adam_Kadmon#Philo - what Adam is
 
+https://en.wikipedia.org/wiki/Qlippoth - The Other Side
