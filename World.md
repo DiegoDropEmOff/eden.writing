@@ -12,4 +12,6 @@
 > Chamber of Guf (Treasury of Souls)
 > 	The functional body in Heaven responsible for the rebirth, creation, and recycle of souls. It's under the control of Binah and Yesod. 
 > Pearly Gates
+> Celestial Sphere
 > Firmament
+> The Other Side
