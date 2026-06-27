@@ -12,7 +12,7 @@
 > **Chamber of Guf (Treasury of Souls)**
 > 	The functional body in Heaven responsible for the rebirth, creation, and recycle of souls. It's under the control of Binah and Yesod. 
 > **Pearly Gates**
-> 	The entrance 
+> 	Where souls enter through
 > **Celestial Spheres**
 > 	Can be described as the planetary bodies and accompanying planetary objects around these things.
 > **Firmament**
