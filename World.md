@@ -1,4 +1,4 @@
 # New Heaven
 
-- Firament
+- Firmament
 - Guf Treasury (Chamber of Souls)
