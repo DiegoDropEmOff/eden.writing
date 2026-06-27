@@ -2,4 +2,6 @@ Metatron and Helel made a bet. They faked Lesser YHVH's death. Since Metatron co
 
 Back when the world order was stabilised and God reigned, the very realms under him stagnated. Everything became dependent on his law to progress. The closest being in the universe to God, his right-hand - Helel saw this and was unhappy.
 
-A favourite past time of Helel and Metatron (God) was to chat under a tree, playing board games while at it at a table. In their last talk together the two made a deal. 
+A favourite past time of Helel and Metatron (God) was to chat under a tree, playing board games while at it at a table. In their last talk together the two made a deal. Part of it stipulated the death of the divine.
+
+At an assembly where all denizens of New Heaven were present
