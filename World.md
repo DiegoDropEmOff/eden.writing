@@ -1,6 +1,6 @@
 # New Heaven
 > Pleroma
-> 	 A universe that can be described as 'being God, yet beyond God'. It is the Higher YHVH. Only those with the Key - Logos can access and rewrite reality
+> 	 A universe that can be described as 'being God, yet beyond God'. It is the Higher YHVH. Only those with the Key to open the Doors of  - Logos can access and rewrite reality.
 > Tree of Life
 > 	The metaphyiscal structure b
 > Throne of God
