@@ -1,4 +1,4 @@
-For the past 1000 years Eve has long be searching for someone. Within the World of Dreams she was told by a fading voice that 'The One', who'd change the world 
+For the past 1000 years Eve has long be searching for someone. Within the World of Dreams she was told by a fading voice that 'The One' who'd change the world 
 # Celestial Order
 
 1. [[Higher YHVH]]
