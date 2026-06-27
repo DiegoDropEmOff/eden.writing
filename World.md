@@ -6,7 +6,7 @@
 > Throne of God
 > Book of Life
 > 	A repository holding the history of what was, is, and is to come. Contained and guarded by Chokmah. Everything in the world is recorded here and be edited by only the Saint. It can be said, by those with awareness, that it is a smaller Pleroma within a Book.
-> Guf Treasury (Chamber of Souls)
+> Chamber of Guf (Treasury of Souls)
 > 	
 > Pearly Gates
 > Firmament
