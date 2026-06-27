@@ -15,3 +15,4 @@
 > Celestial Sphere
 > Firmament
 > The Other Side
+> 	There are various levels to the Other Side. The topmost layer is represented by Hell, while the bottom most is the Void - a plac
