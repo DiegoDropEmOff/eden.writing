@@ -1,6 +1,6 @@
 # New Heaven
 > Pleroma
-> > A gate
+> 	 A universe that can be described as 'being God, yet beyond God'. It is the Higher YHVH
 > Tree of Life
 > 	The metaphyiscal structure b
 > Throne of God
