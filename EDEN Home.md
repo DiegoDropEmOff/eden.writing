@@ -17,9 +17,13 @@ Main Characters:
 - Adam
 - Samael
 
+Supporting Characters:
+- TBA
+
 Antagonistic Characters:
 - Abdiel
 - Khamael
+- TBA
 
 # Eden
 
