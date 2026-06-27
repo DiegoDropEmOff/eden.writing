@@ -1,4 +1,4 @@
-For the past 1000 years Eve had been searching for someone. By a Higher Power she was told ading voice that once she found them, they he would change the world.
+For the past 1000 years Eve had been searching for someone. By the grace of a Higher Power she was told adivoice that once she found them, they he would change the world.
 
 # Celestial Order
 
