@@ -40,7 +40,7 @@ Raphael - Grace - Tiferet
 Haniel - Eternity - Netzach
 Michael - Glory - Hod
 Gabriel - Foundation - Yesod
-Sandalphon - Kingship - Malkhuth
+Sandalphon - Kingship - Malkuth
 
 # Trivia
 1. Gallitsur lies a lot - it's no fun to speak what you can figure out. Wisdom has to be learned, not fed.
