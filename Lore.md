@@ -6,3 +6,4 @@ Adam
 ![[Pasted image 20260627125709.png|375]]
 
 Souls = made of Light
+Helel is part of the makeup which constitutes Lesser YHVH (Da'at)
