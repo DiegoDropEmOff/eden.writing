@@ -688,7 +688,7 @@ Uriel
 Male
 Tartarus
 
-Angels, St. Sandalphon, New Earth (Localities)
+## Angels, St. Sandalphon
 
 Sandalphon
 Male
