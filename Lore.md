@@ -7,3 +7,6 @@ Adam
 
 Souls = made of Light
 Helel is part of the makeup which constitutes Lesser YHVH (Da'at)
+
+Eve vaguely remembers having some sort of Father figure (Metatron) before she met Samael
+
