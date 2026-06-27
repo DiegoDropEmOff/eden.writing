@@ -2,6 +2,7 @@
 > Tree of Life
 > 	
 > Throne of God
-> Primordial Scroll
+> Book of Life
+> 	a r
 > Guf Treasury (Chamber of Souls)
 > Firmament
