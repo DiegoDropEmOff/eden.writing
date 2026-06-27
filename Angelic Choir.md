@@ -155,7 +155,7 @@ Byleth
 Male
 Reconstruction
 
-Dominions, St. Haniel, Hades 
+## Dominions, St. Haniel, Hades 
 
 Haniel
 Female
