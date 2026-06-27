@@ -30,7 +30,7 @@ Seating Princes
 
 Since each Saint is an aspect of God the cornerstone of their light and power is based upon that exact thing.
 
-Metatron - Crown
+Metatron - Crown - Keter
 Gallitsur - Wisdom 
 Michael - Glory
 Tzaphqiel - Understanding
