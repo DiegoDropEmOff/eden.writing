@@ -1,4 +1,4 @@
-For the past 1000 years Eve had been searching for someone. By the grace of a Higher Power she was to ld that if she didn't kill them, the world would
+For the past 1000 years Eve had been searching for someone. By the grace of a Higher Power she was it was revealed that if she didn't kill them, the world would
 
 # Celestial Order
 
