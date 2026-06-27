@@ -2,7 +2,7 @@
 > **The Infinite**
 > 	 The body of Higher YHVH, a universal mind, shaped to appear as what the soul deems to feel and see as the True God. Combining the Infinite, Logos, and Divine Will or Heart can rewrite reality. 
 > **Da'at**
-> 	 A plane that can be described as 'being God, yet beyond God'. It is the Higher YHVH. Only those with the Key to open the Doors of Eden - Logos can rewrite reality. Of course, one must achieve a state of equal standing to the Higher YHVH to even be capable of doing that.
+> 	 A plane that can be described as 'being God, yet beyond God'. It is the Higher YHVH and a unification of all channels (Sefirot). Only those with the Key to open the Doors of Eden - Logos can rewrite reality. Of course, one must achieve a state of equal standing to the Higher YHVH to even be capable of doing that.
 > **Tree of Life**
 > 	The metaphysical structure consisting of the light vessels - Sefirot - and the paths connecting them with structure of the universe. It resides within Keter.
 > **Throne of God**
