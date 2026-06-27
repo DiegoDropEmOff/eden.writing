@@ -19,7 +19,7 @@ Antagonistic Characters:
 - Abdiel
 - Khamael
 
-# History
+# Eden
 
 [[Lore]]
 [[World]]
