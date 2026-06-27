@@ -457,7 +457,7 @@ Jerahmeel
 Male
 Sunday
 
-Powers, St. Khamael
+## Powers, St. Khamael
 
 Khamael
 Male
@@ -593,7 +593,7 @@ Nina
 Female
 Law
 
-Principalities, St. Tzadkiel
+## Principalities, St. Tzadkiel
 
 Tzadkiel
 Female
