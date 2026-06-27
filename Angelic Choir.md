@@ -22,7 +22,7 @@ Male
 Knowledge
 Vessel
 
-Seraphim, St. Michael
+## Seraphim, St. Michael
 
 Michael
 Male
