@@ -657,7 +657,7 @@ Male
 Ferrying 
 
 
-Archangels, St. Tzaphqiel, New Earth (Countries)
+ ## Archangels, St. Tzaphqiel
 
 Tzaphqiel
 Female
