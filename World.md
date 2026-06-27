@@ -14,7 +14,7 @@
 > **Pearly Gates**
 > 	Where souls enter through before entering Heaven. 
 > **Celestial Spheres**
-> 	Can be described as the planetary bodies and accompanying planetary objects around these things.
+> 	Can be described as the planetary bodies and accompanying planetary objects around these things. They're held together by Tiferet.
 > **Firmament**
 > 	The material and immaterial barriers that seperate all Worlds and planes.
 > **The Other Side**
