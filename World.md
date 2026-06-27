@@ -1,6 +1,6 @@
 # New Heaven
 > Pleroma
-> 	 A universe that can be described as 'being God, yet beyond God'. It is the Higher YHVH
+> 	 A universe that can be described as 'being God, yet beyond God'. It is the Higher YHVH. Within this plane,
 > Tree of Life
 > 	The metaphyiscal structure b
 > Throne of God
