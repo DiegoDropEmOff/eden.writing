@@ -1,6 +1,6 @@
 # New Heaven
 > Pleroma
-> 	 A universe that can be described as 'being God, yet beyond God'. It is the Higher YHVH. Only those with the Key to open the Doors of Eden - Logos can access and rewrite reality.
+> 	 A universe that can be described as 'being God, yet beyond God'. It is the Higher YHVH. Only those with the Key to open the Doors of Eden - Logos can rewrite reality. Of course one must achieve 'equalness' to Higher YHVH to even be capable to doing that.
 > Tree of Life
 > 	The metaphysical structure b
 > Throne of God
