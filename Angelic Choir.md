@@ -186,7 +186,7 @@ Abachta
 Female
 Fundamentals
 
-Virtues, St. Raphael, Celestial Sphere (Misc.)
+Virtues, St. Raphael
 
 Raphael
 Male
