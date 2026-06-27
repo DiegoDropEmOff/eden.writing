@@ -108,7 +108,7 @@ Ithuriel
 Male
 Veils
 
-Ophanim, St. Gallitsur, New Heaven (Outer: Gates)
+Ophanim, St. Gallitsur
 
 Gallitsur
 Male
