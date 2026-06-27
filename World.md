@@ -1,6 +1,6 @@
 # New Heaven
 > The Infinite
-> 	 The body of YHVH, shaped to appear as what the soul deems to feel and see as the True God. Combining the Infinite, Logos, and 
+> 	 The body of Higher YHVH, shaped to appear as what the soul deems to feel and see as the True God. Combining the Infinite, Logos, and 
 > Da'at
 > 	 A universe that can be described as 'being God, yet beyond God'. It is the Higher YHVH. Only those with the Key to open the Doors of Eden - Logos can rewrite reality. Of course, one must achieve equal standing to the Higher YHVH to even be capable of doing that.
 > Tree of Life
