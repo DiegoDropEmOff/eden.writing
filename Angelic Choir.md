@@ -516,7 +516,6 @@ Adler
 Amamiel
 Female
 Weakness
-Freud
 
 Umabel
 Female
