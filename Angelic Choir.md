@@ -457,7 +457,7 @@ Jerahmeel
 Male
 Sunday
 
-Powers, St. Khamael, Abyss
+Powers, St. Khamael
 
 Khamael
 Male
@@ -594,7 +594,7 @@ Nina
 Female
 Law
 
-Principalities, St. Tzadkiel, Tartarus 
+Principalities, St. Tzadkiel
 
 Tzadkiel
 Female
@@ -923,7 +923,6 @@ Desire
 Azrael
 Male
 Death
-Lacan
 
 Mansematt
 Male
