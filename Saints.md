@@ -42,4 +42,7 @@ Michael - Glory
 Gabriel - Foundation
 Sandalphon - Kingship
 
+# Trivia
+
+
 
