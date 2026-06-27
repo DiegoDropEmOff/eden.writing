@@ -10,6 +10,6 @@
 > Book of Life
 > 	It is the sacred repository holding the history of what was, is, and is to come. Contained and guarded by Chokmah. Everything in the world is recorded here and be edited by only the Saint. It can be said, by those with awareness, that it is a smaller Pleroma within a Book.
 > Chamber of Guf (Treasury of Souls)
-> 	The functional body in Heaven responsible for the rebirth, creation, and recycle of souls. It's under the control of Binah, Tiferet, and Yesod. 
+> 	The functional body in Heaven responsible for the rebirth, creation, and recycle of souls. It's under the control of Binah, Tiferet, Yesod, and Malkhuth. 
 > Pearly Gates
 > Firmament
