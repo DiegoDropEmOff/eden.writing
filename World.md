@@ -1,6 +1,5 @@
 # New Heaven
 > Tree of Life
->
->Guf Treasury (Chamber of Souls)
+> Primordial Scroll
+> Guf Treasury (Chamber of Souls)
 > Firmament
-> s
