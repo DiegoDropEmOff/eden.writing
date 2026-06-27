@@ -3,6 +3,6 @@
 > 	
 > Throne of God
 > Book of Life
-> 	a r
+> 	a respository contain the history of what was, is, and is to come
 > Guf Treasury (Chamber of Souls)
 > Firmament
