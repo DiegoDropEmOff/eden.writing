@@ -6,4 +6,4 @@ A favourite past time of Helel and Metatron (God) was to chat under a tree, play
 
 At an assembly where all denizens of New Heaven were present, and God was giving his accordances, he was struck down. His Divine Heart was ripped away from his Divine Will.
 
-When captured, the Court of Elders debated on multiple courses of actions - the worse kinds of punishments were 
+When captured, the Court of Elders debated on multiple courses of actions - the worse kinds of punishments were brought up, until Helel's sentence was 
