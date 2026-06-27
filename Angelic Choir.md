@@ -22,22 +22,22 @@ Male
 Knowledge
 Vessel
 
-Seraphim, St. Michael, New Heaven (Centre: Throne)
+Seraphim, St. Michael
 
-Michael - Lion-faced
+Michael
 Male
 Glory
 Vessel
 
-Seraphiel - Eagle-faced
+Seraphiel 
 Female
 Potence
 
-Abdiel - Bull-faced
+Abdiel 
 Male
 Scribing
 
-Cherubim, St. Gabriel, New Heaven (Inner: Ring)
+Cherubim, St. Gabriel
 
 Gabriel
 Male
