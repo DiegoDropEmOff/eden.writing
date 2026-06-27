@@ -5,3 +5,5 @@ Back when the world order was stabilised and God reigned, the very realms under 
 A favourite past time of Helel and Metatron (God) was to chat under a tree, playing board games while at it at a table. In their last talk together the two made a deal. Part of it stipulated the death of the divine.
 
 At an assembly where all denizens of New Heaven were present, and God was giving his accordances, he was struck down. His Divine Heart was ripped away from his Divine Will.
+
+When captured, the Court of Elders debated on multiple courses of actions - the worse kinds of punishments were 
