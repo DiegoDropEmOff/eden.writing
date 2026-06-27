@@ -4,7 +4,7 @@
 > Da'at
 > 	 A universe that can be described as 'being God, yet beyond God'. It is the Higher YHVH. Only those with the Key to open the Doors of Eden - Logos can rewrite reality. Of course, one must achieve a state of equal standing to the Higher YHVH to even be capable of doing that.
 > Tree of Life
-> 	The metaphysical structure consisting
+> 	The metaphysical structure consisting of the light vessels - Sefirot - and the paths connecting them with the universe.
 > Throne of God
 > 	 Symbol of God's divine authority over the world. It is held by Lesser YHVH. However, the seat can also function a vehicle to open the path to the True God.
 > Book of Life
