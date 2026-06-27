@@ -1,6 +1,6 @@
 # [[Saints]]
 
-The 10 Saints are the Sefirot of God. In simpler terms, they're light emanations of the divine. Their roles vary from administrators, to commanders, and guardians. With both the executive and spiritual authority of God invested within them no power may challenge their word in New Heaven, except the oversight of the Council. They rule over a Choir of Angels, beings of the same species to them, called a Heavenly Host.
+The 10 Saints are the Sefirot of God. In simpler terms, they're light emanations of the divine. Their roles vary from administrators, to commanders, and guardians. With both the executive and spiritual authority of God invested within them no power may challenge their word in New Heaven, except the oversight of the Council. They rule over a Choir of Angels, beings of the same species to them, called a Heavenly Host. They are also called Vessels.
 
 # Princes
 
@@ -10,7 +10,7 @@ The second-in-command of a Saint's heavenly host. The duties relegated to them v
 
 The Angels are light beings serving under the Saints. 'Angels' is a general term for all Hosts. As can guessed each Choir is a distinct species of Angel, and each species serves a purpose in the Heavenly Order. 
 
-## Lesser YHVH, St. Metatron
+## God, St. Metatron
 
 Metatron
 Male
