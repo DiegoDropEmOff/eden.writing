@@ -21,3 +21,5 @@ Antagonistic Characters:
 
 # History
 
+[[Lore]]
+[[World]]
