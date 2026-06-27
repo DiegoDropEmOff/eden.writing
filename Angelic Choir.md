@@ -656,7 +656,6 @@ Amamiel
 Male
 Ferrying 
 
-
 ## Archangels, St. Tzaphqiel
 
 Tzaphqiel
