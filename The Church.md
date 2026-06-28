@@ -3,6 +3,8 @@ The principal organisation on New Earth adhering to God's will for the people of
 It is practically the world's government. Though it is quite a corrupt organisation and highly bureaucratic. Getting into the upper echelons of power requires connections, 
 wealth or power. 
 
+Though times have changed and technology has 
+
 - Pope
 - Cardinal
 - Archbishops
