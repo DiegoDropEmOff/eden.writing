@@ -457,11 +457,11 @@ Jerahmeel
 Male
 Sunday
 
-## Powers, St. Khamael
+## Powers, St. Tzadkiel
 
-Khamael
-Male
-Valour
+Tzadkiel
+Female
+Mercy
 Vessel
 
 Samyaza 
