@@ -5,6 +5,7 @@ wealth or power.
 
 Even as times have changed and technology has become the new god for humans, the Church will remain for eternity as God does himself.
 
+Roles in the Church 
 - Pope
 - Cardinal
 - Archbishops
