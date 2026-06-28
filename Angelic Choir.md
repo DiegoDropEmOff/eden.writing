@@ -600,6 +600,11 @@ Female
 Mercy
 Vessel
 
+Khamael
+Male
+Valour
+Vessel
+
 Mashit 
 Male
 Destruction
