@@ -593,7 +593,7 @@ Nina
 Female
 Law
 
-## Principalities, St. Tzadkiel
+## Principalities, St. Tzadkiel 
 
 Tzadkiel
 Female
