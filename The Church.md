@@ -5,4 +5,9 @@ wealth or power.
 
 - Pope
 - Cardinal
-- Archbishops, Bishops, Priests, Deacons, Nuns, Friars
+- Archbishops
+- Bishops
+- Priests
+- Deacons
+- Nuns
+- Friars
