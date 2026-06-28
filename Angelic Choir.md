@@ -593,12 +593,7 @@ Nina
 Female
 Law
 
-## Principalities, St. 
-
-Tzadkiel
-Female
-Mercy
-Vessel
+## Principalities, St. Khamael
 
 Khamael
 Male
