@@ -14,7 +14,7 @@
 > **Pearly Gates | Peter's Doors (of Heaven)**
 > 	Where souls enter through before entering Heaven. Hod watches it.
 > **Kingdom Keys**
-> 	Highest honour that could be granted to non-Angelic beings. It is a gift that allows one passage to Heaven and the other realms. Hod is responsible for beeseaching these to humans.
+> 	Highest honour that could be granted to non-Angelic beings. It is a gift that allows one passage to Heaven and the other realms. Hod is responsible for beseeching these to humans. Only one person in the history of the worlds has ever been
 > **Celestial Spheres**
 > 	Can be described as the planetary bodies and accompanying planetary objects around these things. They're held together by Tiferet.
 > **Material World**
