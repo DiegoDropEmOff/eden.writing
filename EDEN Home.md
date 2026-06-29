@@ -28,5 +28,5 @@ Antagonistic Characters:
 # Eden
 
 [[Lore]]
-[[World]]
+[[Concepts]]
 [[Story]]
