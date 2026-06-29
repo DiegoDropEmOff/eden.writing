@@ -19,5 +19,5 @@
 > 	The very patricles, atoms, and senses beings with physical form have are created and given by Malkuth.
 > **Firmament**
 > 	The immaterial barriers that seperate all Worlds and planes. It closes separates the Darkness and Light. Hod watches it.
-> **The Other Side | Sitra Achra**
+> **The Other Side | Sitra Ahra**
 > 	Most of it resides outside the Firmament. There are various levels to the Other Side. The topmost layer is represented by Hell, while the bottom most is the Void - a place far from the reach of God, and never once under his rule. It is also the source of Darkness in the world. The surface and associated polities are maintained by Netzach, Gevurah, and Chesed.
