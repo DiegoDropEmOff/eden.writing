@@ -9,7 +9,7 @@
 > 	 Symbol of God's divine authority over the world. It is held by Lesser YHVH. However, the seat can also function a vehicle to open the path to the True God. It is a staple of Keter.
 > **Book of Life**
 > 	It is the sacred repository holding the history of what was, is, and is to come. Contained and guarded by Chokmah. Everything in the world is recorded here and be edited by only the Saint. It can be said, by those with awareness, that it is a smaller Pleroma within a Book.
-> **Chamber of Guf (Treasury of Souls)**
+> **Chamber of Guf | Treasury of Souls**
 > 	The functional body in Heaven responsible for the rebirth, creation, and recycle of souls. It's under the control of Binah and Yesod. 
 > **Pearly Gates**
 > 	Where souls enter through before entering Heaven. Hod watches it.
@@ -19,5 +19,5 @@
 > 	The very patricles, atoms, and senses beings with physical form have are created and given by Malkuth.
 > **Firmament**
 > 	The immaterial barriers that seperate all Worlds and planes. It closes separates the Darkness and Light. Hod watches it.
-> **The Other Side** | Sitra Achra
+> **The Other Side | Sitra Achra**
 > 	Most of it resides outside the Firmament. There are various levels to the Other Side. The topmost layer is represented by Hell, while the bottom most is the Void - a place far from the reach of God, and never once under his rule. It is also the source of Darkness in the world. The surface and associated polities are maintained by Netzach, Gevurah, and Chesed.
