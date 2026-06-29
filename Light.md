@@ -1,2 +1,3 @@
 Notes
-- before existence - Infinite Light
+- before existence - Infinite Light filled the space
+- 
