@@ -11,7 +11,7 @@
 > 	It is the sacred repository holding the history of what was, is, and is to come. Contained and guarded by Chokmah. Everything in the world is recorded here and be edited by only the Saint. It can be said, by those with awareness, that it is a smaller Pleroma within a Book.
 > **Chamber of Guf | Treasury of Souls**
 > 	The functional body in Heaven responsible for the rebirth, creation, and recycle of souls. It's under the control of Binah and Yesod. 
-> **Pearly Gates | Peter's Doors (of Heaven)
+> **Pearly Gates | Peter's Doors (of Heaven)**
 > 	Where souls enter through before entering Heaven. Hod watches it.
 > **Celestial Spheres**
 > 	Can be described as the planetary bodies and accompanying planetary objects around these things. They're held together by Tiferet.
