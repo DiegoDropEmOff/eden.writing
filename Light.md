@@ -8,4 +8,3 @@ Notes
 - hashpa'a is the flow of light that enables structure and physical form
 - internal light is the light transferred to humans through shefa
 - hidden light is a type of light only those with with a lot of light are born with, direct light emitted from the God gives this (I'm making this up)
-- 
