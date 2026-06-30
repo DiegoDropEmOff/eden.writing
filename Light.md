@@ -11,4 +11,4 @@ Notes
 
 Before the world existed there nothing, and everything. This space was filled with Infinite Light - an ultimate nothingness where all was one and where concepts such as Reason did not exist. It is a place where anything is possible and nothing has meaning. Where reality cannot be real.
 
-Through tzimtzum light contracted from its space birthing
+Through tzimtzum light contracted from its space birthing the realms.
