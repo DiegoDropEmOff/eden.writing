@@ -10,3 +10,5 @@ Notes
 - hidden light is a type of light only those with with a lot of light are born with, direct light emitted from the God gives this (I'm making this up)
 
 Before the world existed there nothing, and everything. This space was filled with Infinite Light - an ultimate nothingness where all was one and where concepts such as Reason did not exist. It is a place where anything is possible and nothing has meaning. Where reality cannot be real.
+
+
