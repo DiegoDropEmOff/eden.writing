@@ -9,4 +9,4 @@ Notes
 - internal light is the light transferred to humans through shefa
 - hidden light is a type of light only those with with a lot of light are born with, direct light emitted from the God gives this (I'm making this up)
 
-Before the world existed there nothing, and everything. This space was filled with Infinite Light - an ultimate nothingness where all was one
+Before the world existed there nothing, and everything. This space was filled with Infinite Light - an ultimate nothingness where all was one and where concepts such as Reason did not exist.
