@@ -5,4 +5,4 @@ Notes
 - anything is possible, nothing has meaning - reality cannot be real
 - tzimtzum = reduction/contraction of Infinite Light to allow worlds and finite things to exist
 - shefa is the continuous flow of divine light filter through the divine channels (aspects), sefirot, of the tree of life into vessels
-- internal light is the light 
+- internal light is the light transfered to 
