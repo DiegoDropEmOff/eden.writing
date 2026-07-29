@@ -47,7 +47,7 @@ Sandalphon - Kingship - Malkuth
 ### Khamael
 Principality (Angel) of Valour. He is coined the King of Demons and Hell for his control of the domain and its nine corners. He spends his time either reading on his throne in Pandaemonium or deepening Hell by expanding roots of Light.
 
-His personality can be said to that of someone
+His personality can be said to that of someone who's highly disinterested in anything not
 # Trivia
 1. Gallitsur lies a lot - it's no fun to speak what you can figure out. Wisdom must be learned, not fed.
 2. Ruling planets help to contain the power of the Saints.
