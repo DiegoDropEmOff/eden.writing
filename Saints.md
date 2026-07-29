@@ -45,7 +45,7 @@ Sandalphon - Kingship - Malkuth
 # Information 
 
 ### Khamael
-Principality (Angel) of Valour. He is coined
+Principality (Angel) of Valour. He is coined as the King of
 
 # Trivia
 1. Gallitsur lies a lot - it's no fun to speak what you can figure out. Wisdom must be learned, not fed.
