@@ -46,6 +46,7 @@ Sandalphon - Kingship - Malkuth
 
 ### Khamael
 
+
 # Trivia
 1. Gallitsur lies a lot - it's no fun to speak what you can figure out. Wisdom must be learned, not fed.
 2. Ruling planets help to contain the power of the Saints.
