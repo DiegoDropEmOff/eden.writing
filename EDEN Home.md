@@ -30,3 +30,4 @@ Antagonistic Characters:
 [[Lore]]
 [[Concepts]]
 [[Story]]
+[[Arcs]]
