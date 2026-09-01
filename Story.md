@@ -1,6 +1,6 @@
 Long before the world was shrouded in Darkness. Out of the Darkness were entities - Demons. Demons were husks without souls, fuelled only by their desire and flesh formulated from the environment. Alongside them existed proto-humans across the plane. Then all of sudden within that deep Darkness occupied by swimming carcasses, a spark spawned an egg of Light. It repelled all Dark.
 
-It cracked and out powered thousands of Elohim. False gods whose battle against one another pushed back the Darkness. The union of eight gods—the Ogdoad, created an entirely new being. It was 'God'. Thus they defeated all of their enemies. In pursuit of a new world to replace the old 'God' degenerated into a lesser god. 
+It cracked and out powered thousands of Elohim. False gods whose battle against one another pushed back the Darkness. The union of eight gods—the Ogdoad, created an entirely new being. It was 'God'. Thus they defeated all of their enemies. In pursuit of a new world to replace the old 'God' degenerated into a lesser god. However conflicted continue
 
 The Celestial Sphere was renewed after the Light War (Against the Scions of Darkness).
 
