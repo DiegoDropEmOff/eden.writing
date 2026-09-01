@@ -1,4 +1,4 @@
-Long before the world was shrouded in Darkness. Out of the Darkness were entities - Demons. Demons were husks without souls, fuelled only by their desire and flesh formulated from the environment. Then all of sudden within that deep Darkness and swirling 
+Long before the world was shrouded in Darkness. Out of the Darkness were entities - Demons. Demons were husks without souls, fuelled only by their desire and flesh formulated from the environment. Then all of sudden within that deep Darkness occupied by swimming carcasses, a spark spawned an egg of Light. It repelled all Dark.
 
 Demons once ruled a world shrouded in compete Darkness. All of a sudden a bright new colour and energy appeared - it was Light. An egg of Light. No matter what they (Demons) did they could not extinguish, nor destroy it. Then it hatched. It gave birth to the most beautiful being. No horns, no scales, no beastly features. There are no words that can be used to describe the image. 
 
