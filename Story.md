@@ -1,4 +1,4 @@
-
+Demons once ruled a world shrouded in compete Darkness. All of a sudden, a bright new colour and energy appeared - it was Light.
 
 The Celestial Sphere was renewed after the Light War (Against the Scions of Darkness).
 
