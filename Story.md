@@ -1,3 +1,5 @@
+
+
 The Celestial Sphere was renewed after the Light War (Against the Scions of Darkness).
 
 Back when the world order was stabilised and God reigned, the very realms under him stagnated. Everything became dependent on his law to progress. The closest being in the universe to God, his right-hand (and a part of Lesser YHVH, like Metatron) - Helel saw this and was unhappy.
