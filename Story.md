@@ -2,9 +2,7 @@ Long before the world was shrouded in Darkness. Out of the Darkness were entitie
 
 It cracked and out powered thousands of Elohim. False gods whose battle against one another pushed back the Darkness. The union of eight gods—the Ogdoad, created an entirely new being. It was 'God'. Thus they defeated all of their enemies to claim authority over everything. In pursuit of a new world to replace the old 'God' degenerated into a lesser god. 
 
-However conflict continued with the Darkness itself—the King of Darkness. In the end, the ones who suffered the most were the proto-humans. Seeing this, Lesser God ferried the dead and living onto a singular place. Then crushed and refined them, creating the first real humans. Those with souls for they were imbued with Light from God's old corpse. 
-
-The Celestial Sphere was renewed after the Light War (Against the Scions of Darkness).
+However conflict continued with the Darkness itself—the King of Darkness. In the end, the ones who suffered the most were the proto-humans. Seeing this, Lesser God ferried the dead and living onto a singular place. Then crushed and refined them, creating the first real humans. Those with souls for they were imbued with Light from God's old corpse. Then soon after the Light War was officialy close
 
 Back when the world order was stabilised and God reigned, the very realms under him stagnated. Everything became dependent on his law to progress. The closest being in the universe to God, his right-hand (and a part of Lesser YHVH, like Metatron) - Helel saw this and was unhappy.
 
