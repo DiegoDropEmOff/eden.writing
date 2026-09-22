@@ -1,6 +1,6 @@
 These are emanations of God. They can be interpreted in a number ways. Faces, parts, aspects of them.
 
-The fundamental structure of the world is held together by the Tree of Life. Meanwhile the Saints are Sefirot in Angelic form with governance over 
+The fundamental structure of the universe is held together by the Tree of Life. Meanwhile the Saints are Sefirot in Angelic form with governance over things in the framework of the world. It's mainly the foundations that they operate within their 'domains'.
 
 The names of the Saints listed below, alongside their Prince (if applicable):
 
