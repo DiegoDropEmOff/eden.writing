@@ -2,7 +2,7 @@ These are emanations of God. They can be interpreted in a number ways. Faces, pa
 
 The fundamental structure of the universe is held together by the Tree of Life. Meanwhile the Saints are Sefirot in Angelic form with governance over things in the framework of the world. It's mainly the foundations that they operate within their 'domains'.
 
-Unlike the Angels, the Saints can be said to be beyond human attachment - things like morality, friends, love are foreign concepts to them. Their entire identity is to be anchors of God. In modern times some have moved closer towards man rather than seeing themselves as above them. Still, the mentality i
+Unlike the Angels, the Saints can be said to be beyond human attachment - things like morality, friends, love are foreign concepts to them. Their entire identity is to be anchors of God. In modern times some have moved closer towards man rather than seeing themselves as above them. Still, the mentality is present.
 
 The names of the Saints listed below, alongside their Prince (if applicable):
 
