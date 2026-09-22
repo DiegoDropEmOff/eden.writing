@@ -5,7 +5,7 @@ The fundamental structure of the world is held together by the Tree of Life. Mea
 The names of the Saints listed below, alongside their Prince (if applicable):
 
 1. Metatron
-	1. (was) Helel
+	1. Helel
 2. Gallitsur
 3. Tzaphqiel
 	1. Uriel
