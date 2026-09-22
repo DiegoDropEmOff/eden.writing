@@ -5,7 +5,7 @@ wealth or power.
 
 Even as times have changed and technology has become the new god for humans, the Church will remain for eternity as God does himself.
 
-Angels have since modern times been incorporated into the Church
+Angels have since modern times been incorporated into the Church where they fulfil quests and act on standby.
 
 Roles in the Church 
 - Pope
