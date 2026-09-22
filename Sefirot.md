@@ -1,6 +1,6 @@
 *The emanations of God, aspects of 'it' given physical form.*
 
-The fundamental structure of the world is held together by the Tree of Life
+The fundamental structure of the world is held together by the Tree of Life. Meanwhile th
 
 The names of the Saints listed below, alongside their Prince (if applicable):
 
