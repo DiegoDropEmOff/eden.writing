@@ -1,4 +1,4 @@
-*The emanations of God, aspects of it given physical form.*
+*The emanations of God, aspects of 'it' given physical form.*
 
 The names of the Saints listed below, alongside their Prince (if applicable):
 
