@@ -1,6 +1,6 @@
 These are emanations of God. They can be interpreted in a number ways. Faces, parts, aspects of them.
 
-The fundamental structure of the world is held together by the Tree of Life. Meanwhile the the Saints which are Sefirot in Angelic form hold governance for things of it (the world). Hence why they can be referred to as pillars. 
+	The fundamental structure of the world is held together by the Tree of Life. Meanwhile the the Saints which are Sefirot in Angelic form hold governance for things of it (the world). Hence why they can be referred to as the 'Pillars of Light/'. 
 
 The names of the Saints listed below, alongside their Prince (if applicable):
 
