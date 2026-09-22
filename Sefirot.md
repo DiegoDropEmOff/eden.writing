@@ -1,6 +1,6 @@
 *The emanations of God, aspects of 'it' given physical form.*
 
-The fundamental structure of the world is held together by the Tree of Life. Meanwhile the the Saints which are Sefirot in Angelic form hold governance for aspects & things of it (the world). Hence why they can be reffe
+The fundamental structure of the world is held together by the Tree of Life. Meanwhile the the Saints which are Sefirot in Angelic form hold governance for aspects & things of it (the world). Hence why they can be referred to as ''
 
 The names of the Saints listed below, alongside their Prince (if applicable):
 
