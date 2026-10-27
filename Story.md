@@ -2,9 +2,7 @@ The Ogdoad formed God - an amalgamation of 8 beings into one, fighting with the 
 
 The universe dies and gets reborn. Composition change, beings stay. The old one died, in its place a void of Darkness became the world. In the void there existed the Kingdom of Light on the star of Methuselah (HD-140283). There the survivors of the previous Epoch survived by transmuting their existence into light rays.
 
-With the corrosiveness of Darkness remaining a threat, the Light cut through it. Several wars fought against the Prince of Darkness, Asherah. Saklas and his 9 
-children were successful. Victory was gained by pouring their power into a weapon - Adam Qadmon. Swallowed unsuspectingly by Asherah which destroyed him.
-
+With the corrosiveness of Darkness remaining a threat, the Light cut through it. Several wars fought against the Prince of Darkness, Asherah. Saklas and his 9 children were successful. Victory was gained by pouring their power into a weapon - Adam Qadmon. Swallowed unsuspectingly by Asherah which destroyed him.
 - Athoth
 - Elaios
 - Astaphaios 
