@@ -45,13 +45,7 @@ Eve was in favour of science and being able to help God and his beings to fight 
 
 Listening to the Morning Star, Lilith augmented herself and Rahab. Two of the Sefirot left for the Heavens fearing the worst. The other despite their concerns continued, not knowing they were infected by the Darkness. Soon the Day of Reckoning came. War with God. The gate to Heaven and the retribution opened. Rahab woke up enough to free Eve. 120 days of destruction on Earth occurred. No one but Eve was left. The Sefirot were trialed, each who worked with the humans were handed out punishments. Lilith was tossed into Hell as she had become too costly to kill. The Nephilim were repurposed into the Angels. God then decided to redesign the order of the universe. Thus began the Third Era.
 
-Long before the world was shrouded in Darkness. Out of the Darkness were entities - Demons. Demons were husks without souls, fuelled only by their desire and flesh formulated from the environment. Alongside them existed proto-humans across the plane. Then all of sudden within that deep Darkness occupied by swimming carcasses, a spark spawned an egg of Light. It repelled all Dark.
-
-It cracked and out powered thousands of Elohim. False gods whose battle against one another pushed back the Darkness. The union of eight gods—the Ogdoad, created an entirely new being. It was 'God'. Thus they defeated all of their enemies to claim authority over everything. In pursuit of a new world to replace the old 'God' degenerated into a lesser god. 
-
-However conflict continued with the Darkness itself—the King of Darkness. In the end, the ones who suffered the most were the proto-humans. Seeing this, Lesser God ferried the dead and living onto a singular place. Then crushed and refined them, creating the first real humans. Those with souls for they were imbued with Light from God's old corpse and in his image. Then soon after the Light War was officially closed with the Demons fleeing into Hell with their King dead. Lesser God then went onto the shape the world in a Celestial Sphere.
-
-Back when the world order was stabilised and God reigned, the very realms under him stagnated. Everything became dependent on his law to progress. The closest being in the universe to God, his right-hand (and a part of Lesser YHVH, like Metatron) - Helel saw this and was unhappy.
+In the Third Era progress stalled when the world order was stabilised and God reigned, the very realms under him stagnated. Everything became dependent on his law to progress. The closest being in the universe to God, his right-hand (and a part of Lesser YHVH, like Metatron) - Helel saw this and was unhappy.
 
 A favourite past time of Metatron God was to chat under a tree, playing board games while at it at a table. In their last talk together the two made a deal. Part of it stipulated the death of the divine.
 
