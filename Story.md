@@ -51,7 +51,7 @@ As can be recalled, the Nephilim were the predecessors of the Angels all but a f
 
 Metatron and Helel were the two 'right-hands' of God. Wherever he went the two followed. The thing is both of them held different views and intrigues with the world. Metatron was naïve, but good-hearted towards all living creatures. He loved humans the most. Helel was clever and perspective, he disliked man. Despite this Metatron was a kind Angel serving as a proxy for God. His kindness would be his downfall.
 
-One day the two Angels saw people suffering from plagues and bad harvests. Humans did not know of God, they worshipped Elohim. Elohim were false gods given life by Darkness to act as deities, being pretenders of the real God. Helel as usual did not care about such things beneath him. Metatron went and subsumed into a body of an old man called Enoch. Using him he prayed to God. The true God. He did not answer. So, he prayed to one-any of the Sefirot to hear him. They did. 
+One day the two Angels saw people suffering from plagues and bad harvests. Humans did not know of God, they worshipped Elohim. Elohim were false gods given life by Darkness to act as deities, being pretenders of the real God. Helel as usual did not care about such things beneath him. Metatron went and subsumed into a body of an old man called Enoch. Using him he prayed to God. The true God. He did not answer. So, he prayed to one-any of the Sefirot to hear him. They did. From that day he and the people started to spread the Gospel of God.
 
 At an assembly where all denizens of New Heaven were present, and God was giving his accordances, he was struck down. His Divine Heart (Microprosopus) was ripped away from his Divine Will (Macroprosopus).
 
