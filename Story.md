@@ -55,7 +55,7 @@ One day the two Angels saw people suffering from plagues and bad harvests. Human
 
 Things started to go wrong when people started interpreting Enoch's teachings very differently than he intended. Then God decided to open his voicemail—well pay close attention to what was happening int he world. Again he bestowed responsibilities to the Angels and Sefirot. It's not known how he reacted. Regardless Metatron was caught when God decided that Enoch's time on Earth was up. He was killed in a way that looked like he ascended to the Heavens. God was disappointed. Regardless he punished Metatron by erasing his existence and being (not sense) from the minds of everyone. His only consolation would be his recreation among humans in another time.
 
-Soon after God and Helel made a contract. Unknown what the deal was about. God then made an untimely departure—dying
+Soon after God and Helel made a contract. Unknown what the deal was about. God then made an untimely departure—his mind and soul died. It would transfer to the Earth
 
 
 At an assembly where all denizens of New Heaven were present, and God was giving his accordances, he was struck down. His Divine Heart (Microprosopus) was ripped away from his Divine Will (Macroprosopus).
