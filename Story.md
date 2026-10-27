@@ -45,7 +45,7 @@ Eve was in favour of science and being able to help God and his beings to fight 
 
 Listening to the Morning Star, Lilith augmented herself and Rahab. Two of the Sefirot left for the Heavens fearing the worst. The other despite their concerns continued, not knowing they were infected by the Darkness. Soon the Day of Reckoning came. War with God. The gate to Heaven and the retribution opened. Rahab woke up enough to free Eve. 120 days of destruction on Earth occurred. No one but Eve was left. The Sefirot were trialed, each who worked with the humans were handed out punishments. Lilith was tossed into Hell as she had become too costly to kill. The Nephilim were repurposed into the Angels. God then decided to redesign the order of the universe. Thus began the Third Era.
 
-In the Third Era progress stalled. Even though the world order was stabilised, God ensured that no being could yet again distabilse the world with Darkness. the very realms under him stagnated. Everything became dependent on his law to progress. The closest being in the universe to God, his right-hand (and a part of Lesser YHVH, like Metatron) - Helel saw this and was unhappy.
+In the Third Era progress stalled. Even though the world order was stabilised, God ensured that no being could yet again destabilise the world with Darkness. the very realms under him stagnated. Everything became dependent on his law to progress. The closest being in the universe to God, his right-hand (and a part of Lesser YHVH, like Metatron) - Helel saw this and was unhappy.
 
 A favourite past time of Metatron God was to chat under a tree, playing board games while at it at a table. In their last talk together the two made a deal. Part of it stipulated the death of the divine.
 
