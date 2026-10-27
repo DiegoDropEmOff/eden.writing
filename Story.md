@@ -45,8 +45,6 @@ Eve was in favour of science and being able to help God and his beings to fight 
 
 Listening to the Morning Star, Lilith augmented herself and Rahab. Two of the Sefirot left for the Heavens fearing the worst. The other despite their concerns continued, not knowing they were infected by the Darkness. Soon the Day of Reckoning came. War with God. The gate to Heaven and the retribution opened. Rahab woke up enough to free Eve. 120 days of destruction on Earth occurred. No one but Eve was left. The Sefirot were trialed, each who worked with the humans were handed out punishments. Lilith was tossed into Hell as she had become too costly to kill. The Nephilim were repurposed into the Angels. God then decided to redesign the order of the universe. Thus began the Third Era.
 
-
-
 Long before the world was shrouded in Darkness. Out of the Darkness were entities - Demons. Demons were husks without souls, fuelled only by their desire and flesh formulated from the environment. Alongside them existed proto-humans across the plane. Then all of sudden within that deep Darkness occupied by swimming carcasses, a spark spawned an egg of Light. It repelled all Dark.
 
 It cracked and out powered thousands of Elohim. False gods whose battle against one another pushed back the Darkness. The union of eight gods—the Ogdoad, created an entirely new being. It was 'God'. Thus they defeated all of their enemies to claim authority over everything. In pursuit of a new world to replace the old 'God' degenerated into a lesser god. 
