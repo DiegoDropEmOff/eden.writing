@@ -49,7 +49,7 @@ In the Third Era progress stalled. Even though the world order was stabilised, G
 
 As can be recalled, the Nephilim were the predecessors of the Angels all but a few (cast into Hell) were destroyed and repurposed into Angels. These were the new helpers of humanity and God's men to manage 'domains' - inner-workings - of the world just below the Sefirot.
 
-Metatron and Lucifer were the two 'right-hands' of God. Wherever he went the two followed. 
+Metatron and Lucifer were the two 'right-hands' of God. Wherever he went the two followed. The thing is both of them held different views and intrigues with the world. Metatron was naïve, but good-hearted towards all living creatures. He loved humans the most
 
 A favourite past time of Metatron God was to chat under a tree, playing board games while at it at a table. In their last talk together the two made a deal. Part of it stipulated the death of the divine.
 
