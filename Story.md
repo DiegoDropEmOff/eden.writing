@@ -53,7 +53,7 @@ Metatron and Helel were the two 'right-hands' of God. Wherever he went the two f
 
 One day the two Angels saw people suffering from plagues and bad harvests. Humans did not know of God, they worshipped Elohim. Elohim were false gods given life by Darkness to act as deities, being pretenders of the real God. Helel as usual did not care about such things beneath him. Metatron went and subsumed into a body of an old man called Enoch. Using him he prayed to God. The true God. He did not answer. So, he prayed to one-any of the Sefirot to hear him. They did. From that day he and the people started to spread the gospel of God. That's how things started. Every now and then he'd possess Enoch, experience humanity, tell everyone the 'word of God' - which are teachings he made from advice through conversations with the Sefirot he had (he needed the information from somewhere).
 
-Things started to go wrong when people started interpreting Enoch's
+Things started to go wrong when people started interpreting Enoch's teachings very differently than he intended.
 
 At an assembly where all denizens of New Heaven were present, and God was giving his accordances, he was struck down. His Divine Heart (Microprosopus) was ripped away from his Divine Will (Macroprosopus).
 
