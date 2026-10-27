@@ -23,15 +23,15 @@ God  is the originating force of the world. He is male in his late teens. His ha
 God sees himself as first and foremost a 'god who wages war'. This is because of his origin where he was borne to be a machine to win a conflict. He chose to form the world to continue this conflict, however he lost most purpose in an age of peace. Part of the reason why the Sefirot were created was to relegate duties he didn't want to maintain to others.
 
 God imbued Light into the Tree of Death which reappropriate the vessels of the world from the Darkness. These vessels have been shared or even reintegrated between Sefirot of the Tree of Life. To anchored them to the physical plane, ten of the greatest stars. Keter has control over all - as they descend from it.
-- Existence (Tiferet + Yesod + Malkhut)
+- Existence (Tiferet + Yesod + Malkuth)
 - Death (Gevurah + Hod + Netzach)
 - Time (Chokmah + Yesod)
 - Conflict (Gevurah + Hod + Chesed)
-- Transformation (Malkhut + Netzach)
+- Transformation (Malkuth + Netzach)
 - Love (Binah + Chesed)
 - Wisdom (Chokmah)
 - Soulhood (Binah + Yesod)
-- Nature (Tiferet + Yesod + Malkhut)
+- Nature (Tiferet + Yesod + Malkuth)
 
 The Sefirot have the ensured legality in making sure no one transgresses on God's control of these things.
 
