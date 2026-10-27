@@ -51,7 +51,7 @@ As can be recalled, the Nephilim were the predecessors of the Angels all but a f
 
 Metatron and Lucifer were the two 'right-hands' of God. Wherever he went the two followed. The thing is both of them held different views and intrigues with the world. Metatron was naïve, but good-hearted towards all living creatures. He loved humans the most. Lucifer was clever and perspective, he disliked man. Despite this Metatron was a kind Angel serving as a proxy for God. His kindness would be his downfall.
 
-A favourite past time of Metatron God was to chat under a tree, playing board games while at it at a table. In their last talk together the two made a deal. Part of it stipulated the death of the divine.
+
 
 At an assembly where all denizens of New Heaven were present, and God was giving his accordances, he was struck down. His Divine Heart (Microprosopus) was ripped away from his Divine Will (Macroprosopus).
 
