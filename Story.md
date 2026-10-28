@@ -31,7 +31,7 @@ The Sefirot made sure no one transgresses on God's control of these things.
 
 God is the originator of the world. He is a male in his late teens. His hair is short and the colour of wool. His skin is like ivory. His arms and feet are the colour of bronze, while the veins & arteries are overlay on top in the colour of flames. God misunderstanding how the human body looks. He has no sexual features such: nails, eyelashes, and lip tissue. His fingers are sharp and tongue silver.
 
-God sees himself as first and foremost a 'god who wages war'. This is because of his origin where he was borne to be a machine to win a conflict. He chose to form the world to continue this conflict, however he lost most purpose in an age of peace. Part of the reason why the Sefirot were created was to relegate duties he didn't want to maintain to others.
+
 
 Adam is the primordial and perfect human. In the war against Darkness God used him as a poison for Asherah to swallow. In doing so made him fall. He then created Eve from the leftover parts, but she was failure whom he abandoned them cast away. Christos is a spirit of God made before his deal with Metatron. His goal is to guide Adam to ascension of all Sefirot, and to join with God again to revive him and create the New Kingdom. That is the destiny set out for Adam.
 
