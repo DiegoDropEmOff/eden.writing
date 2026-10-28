@@ -22,15 +22,3 @@
 > **The Other Side**
 > 	Most of it resides outside the Firmament. There are various levels to the Other Side. The topmost layer is represented by Hell, while the bottom is the Void - a place far from the reach of God, and never once under his rule. It is also the source of Darkness in the world. The surface and associated polities are maintained by Netzach, Gevurah, and Chesed.
 
-God imbued what was left of Primal Light into the Tree of Death which reappropriate the vessels of the world from the Darkness. These vessels have been shared or even reintegrated between Sefirot of the Tree of Life. To anchored them to the physical plane, ten of the greatest stars. Keter has control over all - as they descend from it.
-- Existence (Tiferet + Yesod + Malkuth)
-- Death (Gevurah + Hod + Netzach)
-- Time (Chokmah + Yesod)
-- Conflict (Gevurah + Hod + Chesed)
-- Transformation (Malkuth + Netzach)
-- Love (Binah + Chesed)
-- Wisdom (Chokmah)
-- Soulhood (Binah + Yesod)
-- Nature (Tiferet + Yesod + Malkuth)
-
-The Sefirot have the ensured legality in making sure no one transgresses on God's control of these things.
