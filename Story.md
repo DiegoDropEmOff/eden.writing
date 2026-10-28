@@ -27,7 +27,7 @@ God imbued what was left of Primal Light into the Tree of Death which reappropri
 - Soulhood (Binah + Yesod)
 - Nature (Tiferet + Yesod + Malkuth)
 
-The Sefirot have the ensured legality in making sure no one transgresses on God's control of these things.
+The Sefirot made sure no one transgresses on God's control of these things.
 
 God is the originating force of the world. He is male in his late teens. His hair is short and the colour of wool, his skin is ivory. His arms and feet are the colour of bronze, while the veins & arteries are overlay on top in the colour of flames. God misunderstanding how the human body looks.  He has no sexual features, nails, eyelashes, lip tissue. His fingers are sharp, and tongue hard  with the colour of silver.
 
