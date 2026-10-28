@@ -14,7 +14,7 @@ Metatron
 - was the highest servant of God before his fall was orchestrated by Lucifer, when they disappeared 
 
 Gallitsur
- God blessed to him to...
+ God punish to him to...
  - hear everything 
  - feel everything 
  - see everything 
@@ -28,6 +28,7 @@ Michael
 - speaks very plainly in short, curt words
 - acts more robotic than any of the other Sefirot 
 - quite reserved 
+- God punished him by preventing he act in combat without his command
 
 Gabriel
 - laid-back in speaking 
