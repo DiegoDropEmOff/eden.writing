@@ -29,7 +29,7 @@ God imbued what was left of Primal Light into the Tree of Death which reappropri
 
 The Sefirot made sure no one transgresses on God's control of these things.
 
-God is the originating force of the world. He is male in his late teens. His hair is short and the colour of wool, his skin is ivory. His arms and feet are the colour of bronze, while the veins & arteries are overlay on top in the colour of flames. God misunderstanding how the human body looks.  He has no sexual features, nails, eyelashes, lip tissue. His fingers are sharp, and tongue hard  with the colour of silver.
+God is the originator of the world. He is a male in his late teens. His hair is short and the colour of wool, his skin is ivory. His arms and feet are the colour of bronze, while the veins & arteries are overlay on top in the colour of flames. God misunderstanding how the human body looks.  He has no sexual features, nails, eyelashes, lip tissue. His fingers are sharp, and tongue hard  with the colour of silver.
 
 God sees himself as first and foremost a 'god who wages war'. This is because of his origin where he was borne to be a machine to win a conflict. He chose to form the world to continue this conflict, however he lost most purpose in an age of peace. Part of the reason why the Sefirot were created was to relegate duties he didn't want to maintain to others.
 
