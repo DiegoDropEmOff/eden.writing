@@ -37,7 +37,7 @@ When asked what was wrong by one of the Sefirot she declined to answer. Brushing
 
 After much deliberation she went back. The being called itself the Attar. It relayed to her things about the world humans did not know. Knowledge that would help humans get to an equal level  of power with Heaven. Unbeknownst to them, her sister Lilith was there as well. She was more affected by the corruption of Darkness. Eve began to tell others of what she learnt, acting as if she found out the things herself. None took her seriously. She decided she'd show them this deity. However they were gone—all but a mural on the wall. The 7 Sefirot on Earth were bemused by the whole ordeal. They moved on from it as Eve was a special one. Her finding out new things wasn't an issue. 
 
-Then in secret Lilith revealed she knew what Eve spoke of. Together they ventured to the cave to find nothing there yet again. 
+Then in secret Lilith revealed she knew what Eve spoke of. Together they ventured to the cave to find nothing there yet again. However at night a snake on a tree outside their hut spoke to them again
 
 presented their teachings to the humans who then began to develop new technologies. Soon these spread amongst all. Instead of continued peace, what occurred was war. This ended the First Era. 
 
