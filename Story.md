@@ -20,19 +20,6 @@ God  is the originating force of the world. He is male in his late teens. His ha
 
 God sees himself as first and foremost a 'god who wages war'. This is because of his origin where he was borne to be a machine to win a conflict. He chose to form the world to continue this conflict, however he lost most purpose in an age of peace. Part of the reason why the Sefirot were created was to relegate duties he didn't want to maintain to others.
 
-God imbued Light into the Tree of Death which reappropriate the vessels of the world from the Darkness. These vessels have been shared or even reintegrated between Sefirot of the Tree of Life. To anchored them to the physical plane, ten of the greatest stars. Keter has control over all - as they descend from it.
-- Existence (Tiferet + Yesod + Malkuth)
-- Death (Gevurah + Hod + Netzach)
-- Time (Chokmah + Yesod)
-- Conflict (Gevurah + Hod + Chesed)
-- Transformation (Malkuth + Netzach)
-- Love (Binah + Chesed)
-- Wisdom (Chokmah)
-- Soulhood (Binah + Yesod)
-- Nature (Tiferet + Yesod + Malkuth)
-
-The Sefirot have the ensured legality in making sure no one transgresses on God's control of these things.
-
 Adam is the primordial and perfect human. In the war against Darkness he used him to harm and push it away. In doing so made him fall. He then created Eve from the leftover parts, but she was failure whom he abandoned them cast away. Christos is a spirit of God made before his deal with Metatron. His goal is to guide Adam to ascension of all Sefirot, and to join with God again to revive him and the old Kingdom. That is the destiny set out for Adam.
 
 The First Era is when the Sefirot walked among humans. Their roles were to act as guardians for humanity. God decided to leave everything to their care as he went to look for something (Adam) between the Light and Darkness of the universe. Humans were ignorant and only knew desire. They were 12 Tribes. Among the most prominent leaders were the sisters Eve, Lilith, and Rahab. Everyone was at peace despite being divided. Eternal bliss. One day Eve decided to look for fruit before ending up stumbling down a cave. There was a mural of snake around a star. It spoke to her of things she could not understand. She ran and thought about it. When asked what was wrong by one of the Sefirot she declined to answer, acting like she was fine. 
