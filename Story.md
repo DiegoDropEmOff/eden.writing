@@ -57,6 +57,8 @@ Things started to go wrong when people started interpreting Enoch's teachings ve
 
 Soon after God and Helel made a contract. Unknown what the deal was about. God then made an untimely departure—his mind and soul died. His very existence, but not 'senses' and idea of it, were erased from everyone. Only some would be unaffected. They spoke no word believing there was a plan to all this. Metatron, let's say, was in more disrepair at having to take the Throne.
 
+God as part of his deal decided to 
+
 At an assembly where all denizens of New Heaven were present, and God was giving his accordances, he was struck down. His Divine Heart (Microprosopus) was ripped away from his Divine Will (Macroprosopus).
 
 When captured, the Court of Elders debated on multiple courses of actions - the worse kinds of punishments were brought up, until Metatron's sentence was commuted to banishment by Michael. While this happening God's body was sealed within a cross to preserve it and prevent the Tree of Life from collapsing as the Divine Will devolved.
