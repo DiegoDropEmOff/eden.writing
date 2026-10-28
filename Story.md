@@ -14,7 +14,7 @@ With the corrosiveness of Darkness remaining a threat, the Light cut through it.
 - Harmas
 - Oraios
 
-In the aftermath, Saklas consumed his sons and daughters for powerful. This inexplicably weakened him and the Light tied to him. To prevent the Primal Light from dying light he shed his shell into a material, physical vessel. He then went
+In the aftermath, Saklas consumed his sons and daughters for powerful. This inexplicably weakened him and the Light tied to him. To prevent the Primal Light from dying light he shed his shell into a material, physical vessel.
 
 God  is the originating force of the world. He is male in his late teens. His hair is short and the colour of wool, his skin is ivory. His arms and feet are the colour of bronze, while the veins & arteries are overlay on top in the colour of flames. God misunderstanding how the human body looks.  He has no sexual features, nails, eyelashes, lip tissue. His fingers are sharp, and tongue hard  with the colour of silver.
 
