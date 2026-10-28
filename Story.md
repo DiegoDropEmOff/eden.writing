@@ -16,7 +16,20 @@ With the corrosiveness of Darkness remaining a threat, the Light cut through it.
 
 In the aftermath, Saklas consumed his sons and daughters for powerful. This inexplicably weakened him and the Light tied to him. To prevent the Primal Light from dying light he shed his shell into a material, physical vessel. His creations would be made the same way. Called the Sefirot. Vessels to continue the flow (shefa) the last of the Primal Light.
 
-God  is the originating force of the world. He is male in his late teens. His hair is short and the colour of wool, his skin is ivory. His arms and feet are the colour of bronze, while the veins & arteries are overlay on top in the colour of flames. God misunderstanding how the human body looks.  He has no sexual features, nails, eyelashes, lip tissue. His fingers are sharp, and tongue hard  with the colour of silver.
+God imbued what was left of Primal Light into the Tree of Death which reappropriate the vessels of the world from the Darkness. These vessels have been shared or even reintegrated between Sefirot of the Tree of Life. To anchored them to the physical plane, ten of the greatest stars. Keter has control over all - as they descend from it.
+- Existence (Tiferet + Yesod + Malkuth)
+- Death (Gevurah + Hod + Netzach)
+- Time (Chokmah + Yesod)
+- Conflict (Gevurah + Hod + Chesed)
+- Transformation (Malkuth + Netzach)
+- Love (Binah + Chesed)
+- Wisdom (Chokmah)
+- Soulhood (Binah + Yesod)
+- Nature (Tiferet + Yesod + Malkuth)
+
+The Sefirot have the ensured legality in making sure no one transgresses on God's control of these things.
+
+God is the originating force of the world. He is male in his late teens. His hair is short and the colour of wool, his skin is ivory. His arms and feet are the colour of bronze, while the veins & arteries are overlay on top in the colour of flames. God misunderstanding how the human body looks.  He has no sexual features, nails, eyelashes, lip tissue. His fingers are sharp, and tongue hard  with the colour of silver.
 
 God sees himself as first and foremost a 'god who wages war'. This is because of his origin where he was borne to be a machine to win a conflict. He chose to form the world to continue this conflict, however he lost most purpose in an age of peace. Part of the reason why the Sefirot were created was to relegate duties he didn't want to maintain to others.
 
