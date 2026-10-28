@@ -31,8 +31,6 @@ The Sefirot made sure no one transgresses on God's control of these things.
 
 God is the originator of the world. He is a male in his late teens. His hair is short and the colour of wool. His skin is like ivory. His arms and feet are the colour of bronze, while the veins & arteries are overlay on top in the colour of flames. God misunderstanding how the human body looks. He has no sexual features such: nails, eyelashes, and lip tissue. His fingers are sharp and tongue silver.
 
-
-
 Adam is the primordial and perfect human. In the war against Darkness God used him as a poison for Asherah to swallow. In doing so made him fall. He then created Eve from the leftover parts, but she was failure whom he abandoned them cast away. Christos is a spirit of God made before his deal with Metatron. His goal is to guide Adam to ascension of all Sefirot, and to join with God again to revive him and create the New Kingdom. That is the destiny set out for Adam.
 
 The First Era is when the Sefirot walked among humans. Their roles were to act as guardians for humanity. God decided to leave everything to their care as he went to look for something (Adam) between the Light and Darkness of the universe. Humans were ignorant and only knew desire. They were 12 Tribes. Among the most prominent leaders were the sisters Eve, Lilith, and Rahab. Everyone was at peace despite being divided. Eternal bliss. One day Eve decided to look for fruit before ending up stumbling down a cave. There was a mural of snake around a star. It spoke to her of things she could not understand. She ran and thought about it. When asked what was wrong by one of the Sefirot she declined to answer, acting like she was fine. 
