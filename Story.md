@@ -14,7 +14,7 @@ With the corrosiveness of Darkness remaining a threat, the Light cut through it.
 - Harmas
 - Oraios
 
-In the aftermath, Saklas consumed his sons and daughters for powerful. This inexplicably weakened him and the Light tied to him. To prevent the Primal Light from dying light he shed his shell into a material, physical vessel. His creations would be made the same way. Called the Sefirot. Vessels to continue the flow (shefa) the last of the Primal Light.
+In the aftermath, Saklas consumed his sons and daughters for powerful. This inexplicably weakened him and the Light tied to him. To prevent the Primal Light from dying light he shed his shell into a material, physical vessel. His creations would be made the same way. Called the Sefirot. Vessels to continue the flow (shefa) of what was left from the Primal Light.
 
 God imbued what was left of Primal Light into the Tree of Death which reappropriate the vessels of the world from the Darkness. These vessels have been shared or even reintegrated between Sefirot of the Tree of Life. To anchored them to the physical plane, ten of the greatest stars. Keter has control over all - as they descend from it.
 - Existence (Tiferet + Yesod + Malkuth)
