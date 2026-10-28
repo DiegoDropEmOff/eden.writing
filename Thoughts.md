@@ -1,4 +1,3 @@
-
 Satan is artificial demon with the blood of Light and Darkness stolen from Asherah (King of Darkness) made by Lucifer. He ages every time he gains power. He gets power by sucking light from Angels, and taking Sefirot away. He's an experiment that Lucifer never expected would reach the Throne of God and Universe Beyond. 
 
 Satan creates a scenario in which Tzaphqiel loses her orphanage - by creating a illusion that makes people think she's attacking a kid. He infiltrates it by pretending to be one. He takes Khamael's Sefirot in the aftermath of the Tartarus Arc, where imbues himself with the Darkness in an attempt to fully judge the trio. He takes Raphael's in a deal and then Michael when he fails to kill him, even after returning to a pure Light form.
