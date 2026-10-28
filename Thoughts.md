@@ -37,6 +37,7 @@ Raphael
 - most dutiful Sefirot 
 - he's dedicated to helped humans and maintaining the order within the confines of his role and the commandments  
 - he's aware of many secrets and truths, as Light is capable of reaching even the darkest corners of the world
+- God punished him to only be able to heal
 
 Khamael
 - stylizes himself as 'Keeper of Hell', after he defeated Belial
