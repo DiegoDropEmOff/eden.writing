@@ -684,10 +684,6 @@ Arphugitonos
 Female
 Darkness
 
-Uriel
-Male
-Tartarus
-
 ## Angels, St. Sandalphon
 
 Sandalphon
