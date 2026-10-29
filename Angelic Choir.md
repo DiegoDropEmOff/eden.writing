@@ -25,7 +25,6 @@ Vessel
 Helel
 Male
 Knowledge
-Vessel
 
 Seraphiel 
 Female
