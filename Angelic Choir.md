@@ -928,6 +928,3 @@ Puta
 Female
 Oblivion
 
-Obaddon
-Male
-Doom
