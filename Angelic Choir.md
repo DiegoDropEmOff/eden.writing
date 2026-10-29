@@ -34,7 +34,7 @@ Abdiel
 Male
 Scribing
 
-Obaddon
+Abaddon
 Male
 Doom
 
