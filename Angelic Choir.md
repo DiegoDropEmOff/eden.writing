@@ -120,6 +120,10 @@ Ophaniel
 Male
 Science
 
+Uriel
+Male
+Discernment
+
 Absinthium 
 Female
 Revelation
