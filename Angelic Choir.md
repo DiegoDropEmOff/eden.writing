@@ -38,10 +38,6 @@ Abaddon
 Male
 Doom
 
-Uriel
-Male
-Discernment
-
 ## Cherubim, St. Gabriel
 
 Gabriel
