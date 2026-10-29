@@ -10,7 +10,7 @@ The second-in-command of a Saint's heavenly host. The duties relegated to them v
 
 The Angels are light beings serving under the Saints. 'Angels' is a general term for all Hosts. As can guessed each Choir is a distinct species of Angel, and each species serves a purpose in the Heavenly Order. 
 
-## God, St. Metatron
+
 
 Metatron
 Male
@@ -22,7 +22,7 @@ Male
 Knowledge
 Vessel
 
-## Seraphim, St. Michael
+## Seraphim, St. Michael & St. Metat
 
 Michael
 Male
