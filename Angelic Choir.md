@@ -35,6 +35,10 @@ Abdiel
 Male
 Scribing
 
+Obaddon
+Male
+Doom
+
 ## Cherubim, St. Gabriel
 
 Gabriel
