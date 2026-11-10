@@ -1,6 +1,4 @@
-Before this all, there was the NOAH Ark which carried the what remained of humanity from the last age. 
-
-The Ogdoad formed God - an amalgamation of 8 beings into one, fighting with the pseudonym Yaldabahot. Once God attained "death" these beings split apart. 7 of them laying down the foundations of the churches, 1 becoming lost in time.
+Before this all, there was the NOAH Ark which carried the what remained of humanity from the last age. The leaders of it were the Ogodoad - 
 
 The universe dies and gets reborn. Composition change, beings stay. The old one died, in its place a void of Darkness became the world. In the void there existed the Kingdom of Light on the star of Methuselah (HD-140283). There the survivors of the previous Epoch survived by transmuting their existence into light rays.
 
