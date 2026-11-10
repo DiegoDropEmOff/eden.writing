@@ -2,7 +2,7 @@ Before this all, there was the NOAH (N... O... A... H...) Ark which carried the 
 
 ████ proposed seizing the territory of Darkness, and injecting the energy of Pure Light into them. All refused but one who accepted part of his argument. Instead the group focused on creating a being that would preserve the legacy of mankind. ████ in secret made his own that could use Pure Light and consume the Darkness. 
 
-**TBC ON ████'S MOTIVATIONS**
+**TBC ON ████'S MOTIVATIONS I DON'T EXACTLY HAVE IT RIGHT NOW**
 
 After his project failing then getting caught, he was kicked out the Ogodoad. ████ went mad, killing all members. He then successfully transcended beyond his mortality with Pure Light then used the Ark to wage war against Darkness. The Ark be taken apart and remade into the Heavens. That is the truth, not the myth. 
 
