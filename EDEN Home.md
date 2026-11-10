@@ -29,5 +29,5 @@ Antagonistic Characters:
 
 [[Lore]]
 [[Concepts]]
-[[Story]]
+[[History]]
 [[Arcs]]
