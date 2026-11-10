@@ -2,7 +2,8 @@ Before this all, there was the NOAH Ark which carried the what remained of human
 
 ████ proposed seizing the territory of Darkness, and injecting the energy of Pure Light into them. All refused but one who accepted part of his argument. Instead the group focused on creating a being that would preserve the legacy of mankind. ████ in secret made his own that could use Pure Light and consume the Darkness.
 
-After his project failing then getting caught, he was kicked out the Ogodoad. Then after various tries and accidents, he managed to instead inject himself with Pure Light. Allowing ████ to
+After his project failing then getting caught, he was kicked out the Ogodoad. ████ went mad, killing all members. He then successfully transcended beyond his mortality with Pure Light then used the Ark to wage war against Darkness. The Ark be taken apart and remade into the Heavens. That is the truth, not the myth. 
+
 
 The universe dies and gets reborn. Composition change, beings stay. The old one died, in its place a void of Darkness became the world. In the void there existed the Kingdom of Light on the star of Methuselah (HD-140283). There the survivors of the previous Epoch survived by transmuting their existence into light rays.
 
