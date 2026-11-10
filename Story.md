@@ -1,6 +1,6 @@
 Before this all, there was the NOAH Ark which carried the what remained of humanity from the last age. The leaders of it were the Ogodoad - the most talented & skilled 8 persons. ████ was one of them. The ark contained the last photons. The group developed these into Pure Light (Primordial Light) by extracting a little bit of inflaton. This gave time, but not enough.
 
-████ proposed seizing the territory of Darkness, and injecting the energy of Pure Light into them. All refused but one who accepted part of his argument. Instead the group focused on creatdd
+████ proposed seizing the territory of Darkness, and injecting the energy of Pure Light into them. All refused but one who accepted part of his argument. Instead the group focused on creating a 
 
 The universe dies and gets reborn. Composition change, beings stay. The old one died, in its place a void of Darkness became the world. In the void there existed the Kingdom of Light on the star of Methuselah (HD-140283). There the survivors of the previous Epoch survived by transmuting their existence into light rays.
 
