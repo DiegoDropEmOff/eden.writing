@@ -4,7 +4,7 @@ Before this all, there was the NOAH Ark which carried the what remained of human
 
 After his project failing then getting caught, he was kicked out the Ogodoad. ████ went mad, killing all members. He then successfully transcended beyond his mortality with Pure Light then used the Ark to wage war against Darkness. The Ark be taken apart and remade into the Heavens. That is the truth, not the myth. 
 
-The universe dies and gets reborn. While the composition changes, things can remain the same in a cyclic sense. The old one died, in its place a void of Darkness became the world. In the void there existed the Kingdom of Light on the star of Methuselah (HD-140283). There the survivors of the previous Epoch survived by transmuting their existence into light rays.
+Though untrue, some of the myth is parabolic in references and universe dies and gets reborn. While the composition changes, things can remain the same in a cyclic sense. The old one died, in its place a void of Darkness became the world. In the void there existed the Kingdom of Light on the star of Methuselah (HD-140283). There the survivors of the previous Epoch survived by transmuting their existence into light rays.
 
 With the corrosiveness of Darkness remaining a threat, the Light cut through it. Several wars fought against the Prince of Darkness, Asherah. Saklas and his 9 children were successful. Victory was gained by pouring their power into a weapon - Adam Qadmon. Swallowed unsuspectingly by Asherah which destroyed him.
 - Athoth
