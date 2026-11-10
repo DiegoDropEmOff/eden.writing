@@ -1,0 +1,75 @@
+Before this all, there was the NOAH Ark which carried the what remained of humanity from the last age. The leaders of it were the Ogodoad - the most talented & skilled 8 persons. ████ was one of them. The ark contained the last photons. The group developed these into Pure Light (Primordial Light) by extracting a little bit of inflaton by using devices called WINGS - each had one. This gave time, but not enough.
+
+████ proposed seizing the territory of Darkness, and injecting the energy of Pure Light into them. All refused but one who accepted part of his argument. Instead the group focused on creating a being that would preserve the legacy of mankind. ████ in secret made his own that could use Pure Light and consume the Darkness.
+
+After his project failing then getting caught, he was kicked out the Ogodoad. ████ went mad, killing all members. He then successfully transcended beyond his mortality with Pure Light then used the Ark to wage war against Darkness. The Ark be taken apart and remade into the Heavens. That is the truth, not the myth. 
+
+
+The universe dies and gets reborn. Composition change, beings stay. The old one died, in its place a void of Darkness became the world. In the void there existed the Kingdom of Light on the star of Methuselah (HD-140283). There the survivors of the previous Epoch survived by transmuting their existence into light rays.
+
+With the corrosiveness of Darkness remaining a threat, the Light cut through it. Several wars fought against the Prince of Darkness, Asherah. Saklas and his 9 children were successful. Victory was gained by pouring their power into a weapon - Adam Qadmon. Swallowed unsuspectingly by Asherah which destroyed him.
+- Athoth
+- Elaios
+- Astaphaios 
+- Yao
+- Sabaoth 
+- Adonin
+- Sabbataios 
+- Horanaeus
+- Harmas
+- Oraios
+
+In the aftermath, Saklas consumed his sons and daughters for powerful. This inexplicably weakened him and the Light tied to him. To prevent the Primal Light from dying light he shed his shell into a material, physical vessel. His creations would be made the same way. Called the Sefirot. Vessels to continue the flow (shefa) of what was left from the Primal Light.
+
+God imbued what was left of Primal Light into the Tree of Death which reappropriate the vessels of the world from the Darkness. These vessels have been shared or even reintegrated between Sefirot of the Tree of Life. To anchored them to the physical plane, ten of the greatest stars. Keter has control over all - as they descend from it.
+- Existence (Tiferet + Yesod + Malkuth)
+- Death (Gevurah + Hod + Netzach)
+- Time (Chokmah + Yesod)
+- Conflict (Gevurah + Hod + Chesed)
+- Transformation (Malkuth + Netzach)
+- Love (Binah + Chesed)
+- Wisdom (Chokmah)
+- Soulhood (Binah + Yesod)
+- Nature (Tiferet + Yesod + Malkuth)
+
+The Sefirot made sure no one transgresses on God's control of these things.
+
+God is the originator of the world. He is a male in his late teens. His hair is short and the colour of wool. His skin is like ivory. His arms and feet are the colour of bronze, while the veins & arteries are overlay on top in the colour of flames. God misunderstanding how the human body looks. He has no sexual features such: nails, eyelashes, and lip tissue. His fingers are sharp and tongue silver.
+
+The First Era is when the Sefirot walked among humans. Their roles were to act as guardians for humanity. God decided to leave everything to their care as he went to look for something (Adam) between the Light and Darkness of the universe. Humans were ignorant and only knew desire. There were 12 Tribes. Among the most prominent leaders were the sisters Eve with her adopted siblings—Lilith and Rahab. Everyone was at peace despite being divided. Eternal bliss. One day Eve decided to look for fruit before falling into a cave with a dead tree. There was a large serpent which contained the stars. It spoke to her of things she could not understand. She ran.
+
+When asked what was wrong by one of the Sefirot she declined to answer. Brushing off the concern.
+
+After much deliberation she went back. The being called itself the Attar. It relayed to her things about the world humans did not know. Knowledge that would help humans get to an equal level  of power with Heaven. Unbeknownst to them, her sister Lilith was there as well. She was more affected by the corruption of Darkness. Eve began to tell others of what she learnt, acting as if she found out the things herself. None took her seriously. She decided she'd show them this deity. However they were gone—all but a mural on the wall. The 7 Sefirot on Earth were bemused by the whole ordeal. They moved on from it as Eve was a special one. Her finding out new things wasn't an issue. 
+
+Then in secret Lilith revealed she knew what Eve spoke of. Together they ventured to the cave to find nothing there yet again. However at night a snake on a tree outside their hut spoke to them again. Their sister Rahab was also present. After this went to corroborate the foreign knowledge, each backing the other. Finally some villagers decided to listen, sparking an age of innovation. They began to develop new technologies. Soon these spread amongst all. Instead of continued peace, what occurred was war. This ended the First Era. 
+
+The Sefirot in their capacity debated what to do. They voted to remain neutral, as hurting the humans would break their duties and they had no methods of reaching out to God. 1 would return to Heaven to understand what was going on, leaving 6 behind. 
+
+After all fighting ceased the last kingdom to stand was the new Kingdom of Qadmon led by the sisters. The Sefirot were integrated and included in the activities of the humans. 5 of them grew to be fond of them Sensing no ill-will they felt obliged and open to sharing what they knew about the world. With the mysterious Attar's aid the kingdom made even things that allowed them to harm the Darkness, sail the stars, and advance into Hell.
+
+Eve was in favour of science and being able to help God and his beings to fight the Darkness of the world. Lilith favoured using the Darkness against the Darkness, and was the most devout worshipper of Attar. Rahab wanted to use Light and Darkness together. They went onto to create the Nephilim with the help of the Sefirot - part human part God. And even more destructive weapons. Eve decided to try contact God on her own after seeing the Kingdom, sisters, and Sefirot affected by the Darkness. The path they were heading towards wasn't right. What she didn't know was this would be a natural ability of hers due to the connection with Adam. God listened to her worries and told her to destroy the source of the corruption - the sisters. 
+
+Alerted by Attar, Lilith planned a coup to topple Eve. Eve refused to kill her and Rahab, thus was imprisoned. Lilith then started coveting the power of God. She coerced the reluctant Rahab to.
+
+Listening to the Attar, Lilith augmented herself and Rahab. 1 of the 6 Sefirot then left too, refusing to take part after he failed to convince Lilith that she would invite God's wrath. The other despite not being onboard with everything staying, not knowing they were being infected by the Darkness. They also loved humans. 
+
+Soon Tribulation came. War with Heaven. The gate was opened, and the not expected retribution from the high being came. Rahab woke up enough to free Eve. 7 years of destruction on Earth occurred. No one but Eve was left alive, after being killed again and again. The Sefirot were trialed, each who worked with the humans were handed out punishments. Lilith was tossed into Hell as God wanted her to suffer more torture for 10 million years. The Nephilim were repurposed into the Angels. Meanwhile the vile serpent Attar who hid during the after-period received a visit from God. He was converted into another type of being against his choice. Someone close to God that could be watched at all times.
+
+God then decided to redesign the order of the universe. Thus began the Third Era.
+
+In the Third Era progress stalled. Even though the world order was stabilised, God ensured that no being could yet again destabilise the world with Darkness. Everything was closely connected to the will of God - and his very words were exalted throughout the realms. Non-intervention by the Celestial Sphere (a special name for Heavens and Space) Yes, realms. After the Third Era Hell was made a domain under the rule of God while the Heavens were formally made their own. Sitra Achra/the Void was designated as Darkness between the Light of God and his powers. A tight programme was ran. And there comes in Metatron and Helel. 
+
+As can be recalled, the Nephilim were the predecessors of the Angels all but a few (cast into Hell) were destroyed and repurposed into Angels. These were the new helpers of humanity and God's men to manage 'domains' - inner-workings - of the world just below the Sefirot.
+
+Yaheol Ha-Katan (Metatron) and Helel ben Shahar were the two 'right-hands' of God. Wherever he went the two followed. The thing is both of them held different views and intrigues with the world. Metatron was naïve, but good-hearted towards all living creatures. He loved humans the most. Helel was clever and perspective, he disliked man. Despite this Metatron was a kind Angel serving as a proxy for God. His kindness would be his downfall.
+
+One day the two Angels saw people suffering from plagues and bad harvests. Humans did not know of God, they worshipped Elohim. Elohim were false gods given life by Darkness to act as deities, being pretenders of the real God. Helel as usual did not care about such things beneath him. Metatron went and subsumed into a body of an old man called Enoch. Using him he prayed to God. The true God. He did not answer. So, he prayed to one—any of the Sefirot to hear him. They did. From that day he and the people started to spread the gospel of God. That's how things started. Every now and then he'd possess Enoch, experience humanity, tell everyone the 'word of God' - which are teachings he made from advice through conversations with the Sefirot he had (he needed the information from somewhere).
+
+Things started to go wrong when people started interpreting Enoch's teachings very differently than he intended. Then God decided to open his voicemail—well pay close attention to what was happening int he world. Again he bestowed responsibilities to the Angels and Sefirot. It's not known how he reacted. Regardless Metatron was caught when God decided that Enoch's time on Earth was up. He was killed in a way that looked like he ascended to the Heavens. God was disappointed. Regardless he punished Metatron by ridding parts of himself. This made a being who was longer shone as bright as he did before and devout to God.
+
+Soon after God and Helel made a contract. Unknown what the deal was about. God then made an untimely departure—his mind and soul died. His very existence, but not 'senses' and idea of it, were erased from everyone. Only some would be unaffected. They spoke no word believing there was a plan to all this. Metatron, let's say, was in more disrepair at having to take the Throne. The Fourth Era started.
+
+God as part of his deal decided to descend to Earth as Christos. He lived many faces, was a saviour many a times. He wanted to learn what was special about humans considering one of his far future plans was erasing them to bring about the next project. Until he found the very thing he'd looked an eternity since for—Adam (Qadmon). He was a perfect hybrid of Darkness and (Primal) Light. Knowledge itself but ignorant. He'd use him to advance to a New Kingdom.
+
+Adam is the primordial and perfect human. In the war against Darkness he was used as a poison for Asherah to swallow. In doing so made him fall. He then created Eve from the leftover parts, but she was failure whom he abandoned them cast away. Christos is a spirit of God made before his deal with Metatron. His goal is to guide Adam to ascension of all Sefirot, and to join with God again to revive him and create the New Kingdom. That is the destiny set out for Adam.
