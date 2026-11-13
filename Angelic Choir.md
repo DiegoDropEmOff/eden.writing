@@ -27,6 +27,10 @@ Seraphiel
 Female
 Potence
 
+Helel
+Male
+Adversity
+
 Abdiel 
 Male
 Scribing
