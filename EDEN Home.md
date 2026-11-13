@@ -15,7 +15,7 @@ For the past 1000 years Eve had been searching for someone. By the grace of a Hi
 Main Characters:
 - Eve
 - Adam
-- Metatron
+- Christos
 
 Supporting Characters:
 - TBA
@@ -29,5 +29,5 @@ Antagonistic Characters:
 
 [[Lore]]
 [[Concepts]]
-[[History]]
+[[Story]]
 [[Arcs]]
