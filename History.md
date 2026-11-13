@@ -4,7 +4,7 @@ Before this all, there was the NOAH (N... O... A... H...) Ark which carried the 
 
 **TBC ON ████'S MOTIVATIONS I DON'T EXACTLY HAVE IT RIGHT NOW**
 
-After his project failing then getting caught, he was kicked out the Ogodoad. ████ went mad, killing all members. He then successfully transcended beyond his mortality with Pure Light then used the Ark to wage war against Darkness. The Ark be taken apart and remade into the Heavens. That is the truth, not the myth. 
+After his project failing then getting caught, he was kicked out the Ogdoad. ████ went mad, killing all members. He then successfully transcended beyond his mortality with Pure Light then used the Ark to wage war against Darkness. The Ark be taken apart and remade into the Heavens. That is the truth, not the myth. 
 
 Though untrue, some of the myth is parabolic in references. While the universe dies and gets reborn. While the composition changes, things can remain the same in a cyclic sense. The old one died, in its place a void of Darkness became the world. In the void there existed the Kingdom of Light. There the survivors of the previous Epoch survived by transmuting their existence into light rays.
 
