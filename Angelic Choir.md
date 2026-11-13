@@ -28,10 +28,6 @@ Male
 Glory
 Vessel
 
-Helel
-Male
-Adversity
-
 Seraphiel 
 Female
 Potence
@@ -40,7 +36,7 @@ Abdiel
 Male
 Scribing
 
-Abaddon
+Obaddon
 Male
 Doom
 
