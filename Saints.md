@@ -45,7 +45,7 @@ Sandalphon - Kingship - Malkuth
 # Information 
 
 ### Khamael
-Principality (Angel) of Judgement. He is coined the King of Demons and Hell for his control of the domain and its nine corners. He spends his time either reading on his throne in Pandaemonium or deepening Hell by expanding roots of Light.
+Principality (Angel) of Judgement. He is coined the King of Demons and Hell for his control of the domain and its nine corners. He spends his time either reading on his throne in Pandemonium or deepening Hell by expanding roots of Light.
 
 His personality can be said to that of someone who's highly disinterested in anything not part of his interests, and goals. 
 # Trivia
