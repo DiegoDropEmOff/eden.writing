@@ -8,8 +8,9 @@ The names of the Saints listed below, alongside their Prince (if applicable):
 3. Tzaphqiel
 	1. Uriel
 4. Tzadkiel
-	1. Hasmed
+	1. Azazel
 5. Khamael
+	1. Hasmed
 6. Raphael
 7. Haniel
 8. Michael
@@ -22,6 +23,7 @@ The names of the Saints listed below, alongside their Prince (if applicable):
 Seating Princes
 - Uriel
 - Hasmed
+- Azazel
 - Seraphiel
 - Abdiel
 - Lailah
