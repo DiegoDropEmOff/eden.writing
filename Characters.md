@@ -1,3 +1,17 @@
+Main Characters:
+- Eve
+- Adam
+- Christos
 
+Side Characters:
+- Nasargiel
+- Abdiel
+
+Supporting Characters:
+- TBA
+
+Antagonists:
+- Khamael
+- Obaddon
 ## Christos
 He is a male in his late teens. His hair is short and the colour of wool. His skin is like ivory. His arms and feet are the colour of bronze, while the veins & arteries are overlay on top in the colour of flames. God misunderstanding how the human body looks. He has no sexual features such: nails, eyelashes, and lip tissue. His fingers are sharp and tongue silver.
