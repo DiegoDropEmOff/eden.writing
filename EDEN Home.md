@@ -17,10 +17,13 @@ Main Characters:
 - Adam
 - Christos
 
+Side Characters:
+
+
 Supporting Characters:
 - TBA
 
-Antagonistic Characters:
+Antagonists:
 - Abdiel
 - Khamael
 - TBA
