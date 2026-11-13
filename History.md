@@ -1,10 +1,10 @@
 Before this all, there was the NOAH (New Ordinal Adamic Heaven) Ark which carried the what remained of humanity from the last age. The leaders of it were the Ogdoad - the most talented & skilled 8 persons. Saklas was one of them. The ark contained the last photons. The group developed these into Pure Light (Primordial Light) by extracting a little bit of inflaton by using devices called WINGS (Wav Ibbur Negative Gilgulic System.) - each had one. This gave time, but not enough.
 
-████ proposed seizing the territory of Darkness, and injecting the energy of Pure Light into them. All refused but one who accepted part of his argument. Instead the group focused on creating a being that would preserve the legacy of mankind. ████ in secret made his own that could use Pure Light and consume the Darkness. 
+Saklas proposed seizing the territory of Darkness, and injecting the energy of Pure Light into them. All refused but one who accepted part of his argument. Instead the group focused on creating a being that would preserve the legacy of mankind. Saklas in secret made his own that could use Pure Light and consume the Darkness. 
 
-**TBC ON ████'S MOTIVATIONS I DON'T EXACTLY HAVE IT RIGHT NOW**
+**TBC ON Saklas'S MOTIVATIONS I DON'T EXACTLY HAVE IT RIGHT NOW**
 
-After his project failing then getting caught, he was kicked out the Ogdoad. ████ went mad, killing all members. He then successfully transcended beyond his mortality with Pure Light then used the Ark to wage war against Darkness. The Ark be taken apart and remade into the Heavens. That is the truth, not the myth. 
+After his project failing then getting caught, he was kicked out the Ogdoad. Saklas went mad, killing all members. He then successfully transcended beyond his mortality with Pure Light then used the Ark to wage war against Darkness. The Ark be taken apart and remade into the Heavens. That is the truth, not the myth. 
 
 Though untrue, some of the myth is parabolic in references. While the universe dies and gets reborn. While the composition changes, things can remain the same in a cyclic sense. The old one died, in its place a void of Darkness became the world. In the void there existed the Kingdom of Light. There the survivors of the previous Epoch survived by transmuting their existence into light rays.
 
