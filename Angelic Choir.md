@@ -16,11 +16,6 @@ Metatron
 Male
 Crown
 Vessel
-
-Helel
-Male
-Adversity
-
 ## Seraphim, St. Michael 
 
 Michael
