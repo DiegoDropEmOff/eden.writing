@@ -18,15 +18,16 @@ Main Characters:
 - [Christos](Characters)
 
 Side Characters:
-- 
+- Nasargiel
+- Abdiel
 
 Supporting Characters:
 - TBA
 
 Antagonists:
-- Abdiel
 - Khamael
-- TBA
+- Obaddon
+- 
 
 # Eden
 
