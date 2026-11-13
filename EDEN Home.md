@@ -9,26 +9,6 @@ For the past 1000 years Eve had been searching for someone. By the grace of a Hi
 5. [Princes](Angelic%20Choir.md)
 6. [Angels](Angelic%20Choir.md)
 7. [[The Church]]
-
-# Characters
-
-Main Characters:
-- Eve
-- Adam
-- Christos
-
-Side Characters:
-- Nasargiel
-- Abdiel
-
-Supporting Characters:
-- TBA
-
-Antagonists:
-- Khamael
-- Obaddon
-- 
-
 # Eden
 
 [[Lore]]
