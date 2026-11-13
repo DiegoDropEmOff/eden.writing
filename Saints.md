@@ -18,7 +18,7 @@ The names of the Saints listed below, alongside their Prince (if applicable):
 9. Gabriel
 	1. Lailah
 10. Sandalphon
-	1. Obaddon
+	1. 
 
 Seating Princes
 - Uriel
@@ -26,7 +26,7 @@ Seating Princes
 - Seraphiel
 - Abdiel
 - Lailah
-- Obaddon
+- 
 
 Since each Saint is an aspect of God the cornerstone of their light and power is based upon that exact thing.
 
