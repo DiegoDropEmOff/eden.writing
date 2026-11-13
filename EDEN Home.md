@@ -18,7 +18,7 @@ Main Characters:
 - [Christos](Characters)
 
 Side Characters:
-
+- 
 
 Supporting Characters:
 - TBA
