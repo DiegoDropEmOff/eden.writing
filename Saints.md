@@ -10,7 +10,6 @@ The names of the Saints listed below, alongside their Prince (if applicable):
 4. Tzadkiel
 	1. Hasmed
 5. Khamael
-	1. Hasmed
 6. Raphael
 7. Haniel
 8. Michael
@@ -19,7 +18,6 @@ The names of the Saints listed below, alongside their Prince (if applicable):
 9. Gabriel
 	1. Lailah
 10. Sandalphon
-	1. 
 
 Seating Princes
 - Uriel
@@ -27,7 +25,6 @@ Seating Princes
 - Seraphiel
 - Abdiel
 - Lailah
-- 
 
 Since each Saint is an aspect of God the cornerstone of their light and power is based upon that exact thing.
 
