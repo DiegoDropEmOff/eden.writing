@@ -35,7 +35,7 @@ Gallitsur - Wisdom - Chokmah
 Michael - Glory - Hod
 Tzaphqiel - Understanding - Binah
 Tzadkiel - Mercy - Chesed
-Khamael - Valour - Gevurah
+Khamael - Judgement - Gevurah
 Raphael - Grace - Tiferet
 Haniel - Eternity - Netzach
 Michael - Glory - Hod
