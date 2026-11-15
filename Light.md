@@ -1,4 +1,4 @@
-Pure Light | Primordial Light | White Light | God
+Pure Light | Primordial Light | Inflaton
 
 Notes
 - before existence - Infinite Light filled the space
