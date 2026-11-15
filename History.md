@@ -4,7 +4,6 @@ However Saclas proposed that by lesioning the Inflaton to the Darkness, it could
 
 Saclas would carry out experiments on his own volition to test his theory. He wanted to create artificial human to be the focus of Apotheosis. He was aided by a member of the Ogdoad who was most cordial with him. Unfortunately his researched was taken from him for the Ogdoad's new Cupio dissolvi plan. He was betrayed. After rotting in jail for a time, he was freed in an uprising. Throughout the chaos, the Eight tried to use their catalyst to initiate their plan to dissolve everything into their God vessel. It shutdown. Saclas in mania then killed them with: his barehands, objects, anything in the command centre. He then merged himself with the vessel, becoming YHVH.
 
-
 The Ark be taken apart and remade into the Heavens. That is the truth, not the myth. 
 
 Though untrue, some of the myth is parabolic in references. While the universe dies and gets reborn. While the composition changes, things can remain the same in a cyclic sense. The old one died, in its place a void of Darkness became the world. In the void there existed the Kingdom of Light. There the survivors of the previous Epoch survived by transmuting their existence into light rays.
