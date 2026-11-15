@@ -8,7 +8,7 @@ After his project failing then getting caught, he was kicked out the Ogdoad. Sac
 
 Though untrue, some of the myth is parabolic in references. While the universe dies and gets reborn. While the composition changes, things can remain the same in a cyclic sense. The old one died, in its place a void of Darkness became the world. In the void there existed the Kingdom of Light. There the survivors of the previous Epoch survived by transmuting their existence into light rays.
 
-With the corrosiveness of Darkness remaining a threat, the Light cut through it. Several wars fought against the Prince of Darkness, Asherah. Saclas and his 9 children were successful. Victory was gained by pouring their power into a weapon - Adam Qadmon. Swallowed unsuspectingly by Asherah which destroyed him.
+With the corrosiveness of Darkness remaining a threat, the Light cut through it. Several wars fought against the Prince of Darkness, Asherah. Saclas and his 9 children were successful. Victory was gained by pouring their power into a weapon - Adam Qadmon. Swallowed unsuspectingly by Namrūs which destroyed them.
 - Athoth
 - Elaios
 - Astaphaios 
