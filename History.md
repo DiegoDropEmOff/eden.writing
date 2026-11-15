@@ -1,6 +1,6 @@
 Before this all, there was the NOAH which carried the what remained of humanity from the last age. The leaders of it were the Ogdoad - the 'most talented & skilled 8 persons' who became leaders of the NOAH Ark after a coup. Saclas was failed to become one of them even after his contribution, he instead became a leading mouthpiece for them. The ark contained the last photons. The group developed these into Primordial Light by extracting a little bit of inflaton into a device called WINGS - Saclas was the guinea pig using the prototype to collect Darkness.
 
-Saclas proposed seizing the territory of Darkness, and injecting the energy of Pure Light into them. All refused but one who accepted part of his argument. Instead the group focused on creating a being that would preserve the legacy of mankind. Saclas in secret made his own that could use Pure Light and consume the Darkness. 
+Saclas proposed seizing the territory of Darkness, and injecting the energy of Primordial Light into them. All refused but one who accepted part of his argument. Instead the group focused on creating a being that would preserve the legacy of mankind. Saclas in secret made his own that could use Pure Light and consume the Darkness. 
 
 **TBC ON SACLAS'S MOTIVATIONS I DON'T EXACTLY HAVE IT RIGHT NOW**
 
