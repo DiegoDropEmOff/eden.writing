@@ -26,4 +26,4 @@
 > **WINGS**
 > 	Wav Ibbur Negative Gilgulic System. God's Primordial Light is diverted outward, within an disconnected part of their soul into a 'wheel'. It floats behind their back. In addition to flight, it is an Angel's halo and manifestation of the authority over their domain. Additionally it allows infinite revival.
 > **NOAH Ark**
-> 	Nemrūsian Olam and Atrahasis Ark. It's one of two Arks that left Earth when the universe and world itself came to an end. The planet was ruined by exploi=tation, war, stagnation.
+> 	Nemrūsian Olam and Atrahasis Ark. It's one of two Arks that left Earth when the universe and world itself came to an end. The planet was ruined by generations of exploitation, war and stagnation. The remaining humans
