@@ -27,5 +27,5 @@
 > 	Wav Ibbur Negative Gilgulic System. God's Primordial Light is diverted outward, within an disconnected part of their soul into a 'wheel'. It floats behind their back. In addition to flight, it is an Angel's halo and manifestation of the authority over their domain. Additionally it allows infinite revival.
 > **NOAH-O**
 > 	Nemrūsian Olam and Atrahasis Object. 
-> Adam 
+> Adam Arks
 > 	It's one of two Arks that left Earth when the universe and world itself came to an end. The planet was ruined by generations of exploitation, war and stagnation. The remaining humans banded together to create vessels that would allow the some of the species (humans, animals, plants alike) to live on, and be evidence of their existence. Each had a panel called the 'Aeons' to lead ship. However after entering a black hole near the end of the universe contact was lost with the 2nd Ark. To keep order and prevent rebellion, a shadow council called the Ogdoad couped and killed the old governance.
