@@ -1,6 +1,6 @@
 Before this all, there was the NOAH which carried the what remained of humanity from the last age. The leaders of it were the Ogdoad - the 'most talented & skilled 8 persons' who became leaders of the NOAH Ark after a coup. Saclas was failed to become one of them even after his contribution, he instead became a leading mouthpiece for them. The Ark contained the last photons. The group developed these into Primordial Light by extracting a little bit of Inflaton into a device called WINGS - Saclas was the guinea pig using the prototype to collect Inflaton. Inflation was left over ionised photons from the death of energy.
 
-However Saclas proposed that by lesioning the Inflaton to the Darkness, it could branch out to collect the rest and expunge the Darkness. And perhaps by connecting the soul and consciousness, to this material one could affect the universe down to a moc
+However Saclas proposed that by lesioning the Inflaton to the Darkness, it could branch out to collect the rest and expunge the Darkness. And perhaps by connecting the soul and consciousness, to this material one could affect the universe down to an anti-material level.
 
 **TBC ON SACLAS'S MOTIVATIONS I DON'T EXACTLY HAVE IT RIGHT NOW**
 
