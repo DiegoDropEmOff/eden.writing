@@ -2,6 +2,7 @@ God of Light
 Great White Sun 
 Invisible Light
 The Divine
+The One
 Shekinah 
 
 What is God, who is it, the meaning behind it?
