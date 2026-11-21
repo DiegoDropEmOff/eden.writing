@@ -1,4 +1,6 @@
-God of Light | The Great White Sun | Shekinah | 
+God of Light 
+The Great White Sun 
+Shekinah
 
 What is God, who is it, the meaning behind it?
 
