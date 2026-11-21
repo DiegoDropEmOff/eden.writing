@@ -1,7 +1,7 @@
 God of Light 
 Great White Sun 
-Shekinah
 Invisible Light
+Shekinah 
 
 What is God, who is it, the meaning behind it?
 
