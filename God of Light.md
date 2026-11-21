@@ -1,4 +1,4 @@
-God of Light | The Great White Sun
+God of Light | The Great White Sun | 
 
 What is God, who is it, the meaning behind it?
 
