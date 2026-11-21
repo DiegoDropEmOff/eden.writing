@@ -2,7 +2,7 @@ Before the beginning of everything there existed the Qadmon Ark, which carried t
 
 The Ark held the last pure photons. The group developed these into Primordial Light by extracting a little bit of Inflaton into a device called WINGS - Saclas was the one who used the first prototype to collect Inflaton.
 
-Inflation is thebleft over ionised photons from the death of energy.
+Inflation is the left over ionised photons from the death of energy.
 
 However Saclas proposed that by lesioning the Inflaton to the Darkness, it could branch out to collect the rest and expunge the Darkness. And perhaps by connecting the soul and consciousness, to this material one could affect the universe down to an anti-material level. They could also fight the Darkness for a new future. The Ogdoad had a different plan. They wished to use Inflaton to reunite with the twin Ark and merge everything into an egg that would hatch the next existences of things. Opposed to fighting with how long they drifted in space and the deteriorating conditions of the ship.
 
