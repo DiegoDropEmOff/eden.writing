@@ -3,7 +3,7 @@ Great White Sun
 Invisible Light
 The Divine
 The One
-King of Kings
+One is 
 Shekinah 
 
 What is God, who is it, the meaning behind it?
