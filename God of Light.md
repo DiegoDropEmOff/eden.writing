@@ -1,4 +1,4 @@
-God.
+God of Light,
 
 What is God, who is it, the meaning behind it?
 
