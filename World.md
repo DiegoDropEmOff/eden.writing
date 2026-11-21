@@ -21,4 +21,6 @@
 > 	The immaterial barriers that seperate all Worlds and planes. It closes separates the Darkness and Light. Hod watches it.
 > **The Other Side**
 > 	Most of it resides outside the Firmament. There are various levels to the Other Side. The topmost layer is represented by Hell, while the bottom is the Void - a place far from the reach of God, and never once under his rule. It is also the source of Darkness in the world. The surface and associated polities are maintained by Netzach, Gevurah, and Chesed.
+> **Shedim**
+> 	False gods of venerated by people of the world. Darkness has allowed the idols (usually spawned from objects) to gain sentience.
 
